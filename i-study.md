@@ -811,12 +811,12 @@ I often do housework
 She goes to school
 We often goes to the park
 
-My firend speaks English fluently
+My friend speaks English fluently
 He gets up late
 She speaks English fluently
 I play
 He often goes to China
-He has a houes
+He has a house
 He works hard
 They often watch TV
 She often flies to England
