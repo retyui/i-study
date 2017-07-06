@@ -798,3 +798,30 @@ I play different games
 He often watches TV
 She goes to the theatre
 She reads English books
+She has a car
+
+I often fly to America
+She works hard
+She reads English books
+He really likes it
+We often go to the cinema
+He reads a lot
+She goes to work
+I often do housework
+She goes to school
+We often goes to the park
+
+My firend speaks English fluently
+He gets up late
+She speaks English fluently
+I play
+He often goes to China
+He has a houes
+He works hard
+They often watch TV
+She often flies to England
+We often play football
+I often listen to music
+
+
+[5.2 практика](https://www.youtube.com/watch?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&v=MyW2oAiQ4Ew)
