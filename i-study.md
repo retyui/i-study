@@ -1,12 +1,12 @@
 I study
 
 I study university
-I study at univsity
+I study at university
 I study there
 I read books
 I read English books
 I live  in  Russia
-I live in Belarussia
+I live in Belarusian
 I want it
 
 
@@ -21,7 +21,7 @@ I like it
 
 I  / We(мы) / You(ты) / They (они)  + Глагол
 I live in Minsk
-We speek English
+We speak English
 You understand
 They read English books
 I know English
@@ -33,7 +33,7 @@ I like it
 02--
 Present Simple
 
-The read Engilsh books
+The read English books
 I have a house
 They know it
 We know English very well
@@ -41,23 +41,23 @@ They have a house
 They work
 They have a car
 I know English well
-They skeak English
+They speak English
 We study at school
-You stady at school
+You study at school
 
 We work there
 We work
 I live in Moscow
-You hase a house
+You have a house
 They read English books
 I read English books
-They live in Moskow
+They live in Moscow
 We read books
 We play
 
 They study there
 I understand
-We live in Belarussia
+We live in Belarusian
 I work there
 You play football
 They do it well
@@ -68,7 +68,7 @@ You play
 We understand you
 We play football
 I work
-They speek Russian
+They speak Russian
 I study
 You work there
 We like English
@@ -89,52 +89,52 @@ I have a car
 
 We have a house
 They play
-We stuty
+We study
 You read English books
-We read Engilsh books
+We read English books
 We study there
 They understand you
-I know Engilsh very well
-You speek English
-I live in Belarussia
+I know English very well
+You speak English
+I live in Belarusian
 
 They work there
 We read
 I understand you
-We speak Engilsh
+We speak English
 You read
 They know English well
-You undestand you
+You understand you
 You know English
 You study
-I read Engish book
+I read English book
 
 You want it
 We speak Russian
-I live in Belarussian
+I live in Belarusian
 We know English well
 I speak English
 You read books
 You read English books
 You know it
 They read book
-You do it weel
+You do it well
 
 You play
 We live in Moscow
 They know English
 They play football
 I know English
-I speek Russian
+I speak Russian
 They understand very well
 They like English
 You live in Minsk
 You work
-You like Ehglish
+You like English
 
 I want it
-I live in Belarussian
-You know Engilsh very well
+I live in Belarusian
+You know English very well
 I read
 
 
@@ -146,7 +146,7 @@ I work
 He works
 I speak English
 She speaks English
-It hepls me
+It helps me
 It helps you
 It really helps
 
@@ -167,7 +167,7 @@ I really like it
 I really like these lessons
 
 He swims very well
-She understansds it lesson
+She understands it lesson
 He remembers it
 It works well
 She speaks Spanish
@@ -175,13 +175,13 @@ I speak English fluently
 He speaks English fluently
 He wants it
 She sees it
-She undertands you
+She understands you
 It seems interesting
 
 
 She eats meat
 He eats fish
-It heppens
+It happens
 He plays tennis
 She plays different games
 He plays the guitar
@@ -198,7 +198,7 @@ She really liked it
 He reads English books
 It seems interesting
 She remembers it
-She reads Enlish books
+She reads English books
 He understands you
 
 She works well
@@ -208,7 +208,7 @@ He works well
 She gets up late
 She speaks English
 He sees it
-He hepls you
+He helps you
 He likes this lesson
 It happens
 He plays
@@ -241,7 +241,7 @@ She knows it
 He works a lot // Он работает много
 He swims very well
 He gets up early
-He works in Londan
+He works in London
 She likes your lessons
 
 He speaks English
@@ -271,21 +271,21 @@ He works
 He reads books
 She gets up very early
 She swims very well
-He speek English fluently // он говорит по англ СВОБОДНО
+He speak English fluently // он говорит по англ. СВОБОДНО
 He wants it
 She likes this lesson
 He likes this lessons
 She wants it
 
-He skeeps Spanish
+He speaks Spanish
 She work hard
-She speeks English fluently
+She speaks English fluently
 She plays
 She works a lot // Она работает много
 She eats meat // Она ест мясо
 He gets up late // Он стает поздно
 She works
-She lives in Londan
+She lives in London
 He remembers it
 
 He likes it
@@ -301,10 +301,10 @@ He gets up very early
 
 He speaks in Spanish fluently
 She speaks in Spanish very well
-She lines in Moskow
+She lines in Moscow
 
 
-https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX
+[](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 =====================
 Я / Мы / Ты  / они
 I / We / You / They
@@ -322,7 +322,7 @@ He works in London
 She works a lot
 It really helps me
 
-!!!Если глагол заканчиваеться на "о" то используем "es";!!!
+!!!Если глагол заканчивается на `"о"` то используем `"es"`;!!!
 
 go - goes; do - does
 
@@ -342,15 +342,15 @@ I often do it // Часто я это делаю
 He often goes there
 She often does it
 
-!!!Если глагол заканчиваеться на "ch, sh, x" то дабавляеться "es"!!!
+!!!Если глагол заканчивается на `"ch, sh, x"` то добавляется `"es"`!!!
 
 I teach English
-She teaches Enligsh
+She teaches English
 I watch TV(television) - He watches TV
 I watch TV every day   - He watches TV every day
 
 wash - мыть
-wash uo the dishes - мыть посуду
+wash up the dishes - мыть посуду
 I wash up the dishes
 She washes up the dishes
 relax - отдыхать
@@ -358,24 +358,24 @@ I usually(обычно) relax in the evening
 She usually relaxes in the evening
 
 
-!!!Если глагол заканчиваеться на Гласная+"y" то добавляем "s"!!!
+!!!Если глагол заканчивается на Гласная+`"y"` то добавляем `"s"`!!!
 I play football        - He plays football
 We play computer games - He plays computer games
-!!!Если глагол заканчиваеться на Согласная+"y" то "y"->(заменяеться)"i"+"es"(прибавляеться) !!!
+!!!Если глагол заканчивается на Согласная+`"y"` то `"y"`->(заменяется)`"i"`+`"es"`(прибавляется) !!!
 
 fly - летать
 I often fly to America
-He often flies to Amarica
+He often flies to America
 She often flies to England
 I often go to China
 He often flies to the United States
 She often goes to China
 
 cry - плакать
-He ofetn cries
+He often cries
 try - стараться
 
-!!!Правило двух глаголов , вместе их ставить нельзя! обычно разделяем "to"!!!
+!!!Правило двух глаголов , вместе их ставить нельзя! обычно разделяем `"to"`!!!
 She tries to do it
 He tries to help him(ему)
 I try to learn English
@@ -390,7 +390,7 @@ I have a car            - He has a car
 I have a computer       - She has a computer
 I have a house          - He has a house
 I have a flat(квартира) - She has a flat
-=======↓ - Артикл "а" ставиться при одиночном числе (не множественном)
+=======↓ - Артикул "а" ставиться при одиночном числе (не множественном)
 I have many friends     - He has many friends
 I have a job            - She has a job
 He has a girlfriend
@@ -402,12 +402,12 @@ She has a boyfriend
 
 
 
-03 практ. https://www.youtube.com/watch?v=95tXqVhMM1k&index=6&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX
+[03 практика](https://www.youtube.com/watch?v=95tXqVhMM1k&index=6&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 She plays computer games
-He wathces TV(television)
+He watches TV(television)
 She has a boyfriend
-He speeks English fluently
+He speaks English fluently
 He often tries to do it
 He does it well
 He works hard
@@ -459,18 +459,18 @@ She studies ay school
 
 She does it well
 She has a job(Она имеет работу)
-It happens(Это случаеться\ происходить)
+It happens(Это случается\ происходить)
 He tries to learn English
-She gest up late
+She gets up late
 She tries to do it
 He studies at school
 She has a boyfriends
 She often does it
-She relexes in the evening / She has a rest in the evening
+She relaxes in the evening / She has a rest in the evening
 He swims very well
 She watches TV every day
 She plays football
-She speeks English fluently
+She speaks English fluently
 She tries to learn English
 He often flies to United States
 He usually(обычно) relaxes in the evening / He usually has a rest in the evening
@@ -510,12 +510,12 @@ He often goes there
 She often flies to England
 
 
-04 граматика https://www.youtube.com/watch?v=HQWfe-HBg50&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=7
+[04 грамматика](https://www.youtube.com/watch?v=HQWfe-HBg50&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=7)
 
 Present Simple
 
 I/We/You/They + глагол
-He/She/It + глалог + s
+He/She/It + глагол + s
 
 This lesson helps me (This lesson => It)
 Этот урок помогает мне
@@ -545,7 +545,7 @@ I often listen to music
 My sister often listens to music
 
 My father has a job (He)
-My mather has a car
+My mother has a car
 My sister goes to school 
 My brother goes to work (He)
 Our teacher knows English very well
@@ -558,11 +558,11 @@ Their teacher says it
 Their teacher says so
 
 I - me (Я - Мой)
-I have a brother !!!Если единтвенное число то добавляем атрикл "а"!!!
+I have a brother !!!Если единственное число то добавляем артикул `"а"`!!!
 My brother goes to school
 
 We - our (Мы - наш)
-We have an uncle !!!Артикл "а"/"an" если слово(после артикла) начинаеться на гласный то "an"!!!
+We have an uncle !!!Артикул `"а"/"an"` если слово(после артикула) начинается на гласный то `"an"`!!!
 Our uncle speaks English fluently
 
 You - your (Ты - твой)
@@ -570,7 +570,7 @@ You have a house
 Your house looks beautiful
 
 They - Their (Они - Их)
-Thuir teacher says so
+Their teacher says so
 
 
 He - his (Он -его)
@@ -584,12 +584,12 @@ She eats fish / meat
 
 
 
-04 Практ https://www.youtube.com/watch?v=LQ8gSg-mG1M&index=8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX
+[04 практика](https://www.youtube.com/watch?v=LQ8gSg-mG1M&index=8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 Present Simple 
 
 These lessons help me
-My fatther goes to work
+My father goes to work
 My uncle works very hart
 He speaks English fluently
 My sister lives in this house
@@ -599,22 +599,22 @@ My brother often plays basketball
 My parents work very hard
 My sister gets up late / early
 My friend tries to help my brother
-This house costsa (a lot/much)
+This house costs (a lot/much)
 My sister has a boyfriend
 Your brother plays computer games
-I also thikn so
+I also think so
 I think so, too
 My parents really like these lessons
 My friend likes this house
 That(та) flat(квартира) costs a lot
 
-My father skeeps English fluently
+My father speaks English fluently
 Your brother often relaxes / Your brother often has a rest
 My uncle often goes to China
 Their mother has a car
 His brother goes to school
 This lesson helps me
-My mather has a job
+My mother has a job
 Your father knows this very well
 My sister tries to learn Spanish
 My boyfriend often listens to music
@@ -634,7 +634,7 @@ It costs 50 pounds
 My best friend lives in Moscow
 My best friends really likes it
 I have an uncle
-My brother studys at university
+My brother study at university
 They have a house
 My girlfriend often listens to music
 My friend plays football very well
@@ -650,7 +650,7 @@ My sister studies at school
 Your idea seems interesting
 My friend often sees her
 My father has a job
-Her brother gose to work
+Her brother goes to work
 
 My sister lives in Russia
 My brother goes to work
@@ -658,14 +658,14 @@ My friend often tries to do it
 Their uncle often watches TV television
 Her mother teachers English
 My brother works in England
-Their houes looks very beautiful
+Their house looks very beautiful
 Her sister goes to work
 Your friend often goes there
 My sister goes to school
 
 That house costs a lot
 It happens
-My mather often says it
+My mother often says it
 My uncle lives in America
 My best friend plays different games
 
@@ -675,11 +675,11 @@ Your parents often go to the park
 My brother really likes it
 I have a job
 Your brother swims very well
-My mather likes this idea 
+My mother likes this idea 
 My parents know it
 
 
-05 повтор https://www.youtube.com/watch?v=x9v5Snadtag&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=9
+[05 повтор](https://www.youtube.com/watch?v=x9v5Snadtag&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=9)
 
 Present Simple
 
@@ -689,14 +689,14 @@ He She It + глагол +s
 I go to work
 She goes to work
 
-o + es
+`o + es`
 do - does
 go - goes
 
 I do it very well
 He does it very well
 
-ch,sh,x + es
+`ch,sh,x + es`
 I often watch TV
 She often watches TV
 She washes up the dishes
@@ -713,7 +713,7 @@ I work a lot
 She works very hard
 He lives in this house
 She lives in that house
-My friend skeeps English fluently
+My friend speaks English fluently
 I like it/He likes it / She likes it/ We like it/ They like it
 He really likes it
 I often go to the park
@@ -734,7 +734,7 @@ I get up early
 He gets up late
 
 
-05.1 теор. https://www.youtube.com/watch?v=tgZX-W6RXSk&index=10&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX
+[05.1 теор.](https://www.youtube.com/watch?v=tgZX-W6RXSk&index=10&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 It seems interesting
 She often does it
 She has a boyfriend
@@ -762,7 +762,7 @@ He washes up the dishes
 We do business
 He has a friend
 She works very hard
-She theches English
+She teaches English
 He often  flies to the United States
 He reads English books
 
@@ -770,7 +770,7 @@ He often flies to England
 She studies at school
 He often relaxes un the evening
 He often has a rest in the evening
-My sister has a frined
+My sister has a friend
 I have a job
 My best friend lives in England
 He has a girlfriend
@@ -786,7 +786,7 @@ She plays computer games
 She plays different games
 He tries to learn English
 He does housework
-This lesson seems intreesting
+This lesson seems interesting
 I often go to the cinema
 
 She has a job
