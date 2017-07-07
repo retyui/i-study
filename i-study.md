@@ -1027,9 +1027,9 @@ I want to drink tea / coffee
 
 I want to drink a cup of tea
 I want to drink a cup of coffee
-I want to learn Englis
+I want to learn English
 I want to go to America next month
-I want to go to Italy nexy yaer
+I want to go to Italy next year
 I want to read this book
 I want to call her / him / them
 They want to call me
@@ -1049,10 +1049,10 @@ I want to learn English with you
 My boss wants more money
 My brother wants to studies in another place
 My aunt wants to sell her house
-My aucle wants to sell his flat
+My uncle wants to sell his flat
 Her relative wants to rent a flat
 His secretary wants a new job
-!!!Если `прилагательное +  существительно ед. числа` то добавляем артикл `a/an`+ `прил.` +`сущ.`  если согласный звук то `а` в противном случае `an` !!!
+!!!Если `прилагательное +  существительно ед. числа` то добавляем артикул `a/an`+ `прил.` +`сущ.`  если согласный звук то `а` в противном случае `an` !!!
 His secretary wants to find a new job
 He want to knows everything
 She want to knows all the information
