@@ -832,7 +832,7 @@ My father often flies to the United States
 He often does it
 My friend studies at university
 He has a job
-My mather wants it
+My mother wants it
 My father does it very well
 She tries to help him
 
@@ -848,7 +848,7 @@ She swims very well
 We have a car
 
 I work a lot
-He swims veru well
+He swims very well
 She watches TV
 He often tries to help him
 It happens
@@ -880,9 +880,9 @@ She tries to help him
 She works very hard
 She goes to work
 It lesson seems very interesting
-She tries to learn Franch
+She tries to learn French
 
-Hi goes to the cinama
+Hi goes to the cinema
 I often relax in the morning
 I often have a rest in the morning
 She goes there
@@ -910,7 +910,7 @@ He has lots of friends
 
 She works a lot
 We try to learn English
-I have a girlfrien
+I have a girlfriend
 He often go there
 We often relax in the evening
 He tries to help me
