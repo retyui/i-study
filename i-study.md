@@ -1008,3 +1008,58 @@ My brother has a computer
 My parents often fly to the United States
 My uncle works a lot
 My friend tries to learn Spanish
+
+[6 теория](https://www.youtube.com/watch?v=iI4ubo2Myok&index=13&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I want this dress
+I want to buy this dress
+want + to + глагол
+I want this thing
+I want to buy this thing
+I want to order it
+I want to buy a house
+I want to know English really well
+I want to speak English very well
+I want to speak English fluently
+I want to eat / drink
+I want to eat meat / fish
+I want to drink tea / coffee
+
+I want to drink a cup of tea
+I want to drink a cup of coffee
+I want to learn Englis
+I want to go to America next month
+I want to go to Italy nexy yaer
+I want to read this book
+I want to call her / him / them
+They want to call me
+They want to call us
+I want to visit this place
+I want to get more money
+
+I want to live in another country
+I want live abroad
+I want to study in the United States
+I want to have my own(собственный) business
+I want to watch this video
+I want to watch your channel every day
+I want to go to the cinema
+I want to learn English with you
+
+My boss wants more money
+My brother wants to studies in another place
+My aunt wants to sell her house
+My aucle wants to sell his flat
+Her relative wants to rent a flat
+His secretary wants a new job
+!!!Если `прилагательное +  существительно ед. числа` то добавляем артикл `a/an`+ `прил.` +`сущ.`  если согласный звук то `а` в противном случае `an` !!!
+His secretary wants to find a new job
+He want to knows everything
+She want to knows all the information
+
+I want to help you
+i want to thank you
+I also want to thank you
+Thanks! Thanks you!
+Thanks you very much!
+Thanks a lot!
