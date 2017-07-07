@@ -920,3 +920,91 @@ My sister has (many/a lot of/lots of) friends
 She swims very well
 
 [`5.3 упражнения`](https://www.youtube.com/watch?v=5OeRHmVJEh8&index=12&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+He often fies to America
+He goes to works
+She often goes to China
+She tries to do it
+They have a house
+I have a boyfriend
+He works a lot
+She goes there
+He speaks English fluently
+She wahes up the dishes
+
+I try to learn English 
+She goes to the park
+My brother plays different games
+He often tries to do it
+I study as school
+My mother often go there
+He does houseword
+I get up late
+It seems interesting
+She stusies at university
+
+My brother reads a lot
+He goes to the park
+He tries to learn English
+She often flies to America
+He ofhen flies to England
+She often goes to the theatre
+She plays computer games
+My sister tries to learn English
+You teache English very well
+Hi goes to theatre
+
+My brother often relaxes in the evening
+My mother often watches TV
+We get up early
+She does housework
+I live in Russia
+My sister goes to school
+He goes to work
+It often happens
+Your parents often goes there
+She studies at university
+
+I study at university
+I have a friend
+She goes to the cinema
+He plays computer games every day
+She does it well
+She does to the park
+She has a job
+She tries to do it
+My parents speak English fluently
+He often goes to theatre
+
+My best friend studies there
+She studies at school
+I often go there
+He teaches English
+She really likes it
+She has a car
+She has a house
+He plays football
+My sister reads books
+He swims very well
+
+We read a lot
+We often fly to America
+We study at school
+They have a computer
+He tries to do it
+She works every day
+She teaches English
+My brother works very hard
+She gets up early
+The study ay university
+
+He teaches English
+We often do it
+She has a boyfriend
+My brother studies at university
+She does housework
+His father has a job
+My brother has a computer
+My parents often fly to the United States
+My uncle works a lot
+My friend tries to learn Spanish
