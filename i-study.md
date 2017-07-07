@@ -921,7 +921,7 @@ She swims very well
 
 [`5.3 упражнения`](https://www.youtube.com/watch?v=5OeRHmVJEh8&index=12&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
-He often fies to America
+He often flies to America
 He goes to works
 She often goes to China
 She tries to do it
@@ -930,7 +930,7 @@ I have a boyfriend
 He works a lot
 She goes there
 He speaks English fluently
-She wahes up the dishes
+She washes up the dishes
 
 I try to learn English 
 She goes to the park
@@ -938,20 +938,20 @@ My brother plays different games
 He often tries to do it
 I study as school
 My mother often go there
-He does houseword
+He does housework
 I get up late
 It seems interesting
-She stusies at university
+She studies at university
 
 My brother reads a lot
 He goes to the park
 He tries to learn English
 She often flies to America
-He ofhen flies to England
+He often flies to England
 She often goes to the theatre
 She plays computer games
 My sister tries to learn English
-You teache English very well
+You teach English very well
 Hi goes to theatre
 
 My brother often relaxes in the evening
