@@ -825,3 +825,98 @@ I often listen to music
 
 
 [5.2 практика](https://www.youtube.com/watch?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&v=MyW2oAiQ4Ew)
+
+She relaxes a lot / She has a rest a lot
+I really like this car
+My father often flies to the United States
+He often does it
+My friend studies at university
+He has a job
+My mather wants it
+My father does it very well
+She tries to help him
+
+He really likes it
+He goes to school
+She gets up late
+He often relaxes / He often has a rest
+We really like it
+She does it well
+She go to the cinema
+He has a car
+She swims very well
+We have a car
+
+I work a lot
+He swims veru well
+She watches TV
+He often tries to help him
+It happens
+He has a friend
+My sister often flies to the United States
+She speaks English fluently
+He works hard
+I get up early
+
+She often goes it
+She washes up the dishes
+He often does it
+She has a computer
+She watches TV every day
+He plays football
+He has a house
+He has many friends
+He has a lot of friends
+He has lots of friends
+He reads English books
+He goes to school
+
+She studies at school
+He tries to learn Spanish
+She often goes to China
+She washes up the dishes
+He often tries to do it
+She tries to help him
+She works very hard
+She goes to work
+It lesson seems very interesting
+She tries to learn Franch
+
+Hi goes to the cinama
+I often relax in the morning
+I often have a rest in the morning
+She goes there
+Hi gets up late
+He often goes to China
+She often relaxes in the evening
+She often has a rest in the evening
+I live in Moscow
+She often flies to America
+He works very hard
+He does it well
+
+She tries to learn Spanish
+She has a house
+Their parents have a job
+I study at university
+He often flies to England
+He plays different games
+She plays
+He goes to the park
+He goes to the cinema
+He has many friends
+He has a lot of friends
+He has lots of friends
+
+She works a lot
+We try to learn English
+I have a girlfrien
+He often go there
+We often relax in the evening
+He tries to help me
+She has a computer
+I often play computer games
+My sister has (many/a lot of/lots of) friends
+She swims very well
+
+[`5.3 упражнения`](https://www.youtube.com/watch?v=5OeRHmVJEh8&index=12&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
