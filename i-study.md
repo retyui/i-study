@@ -1,4 +1,4 @@
-[1 теория](https://www.youtube.com/watch?v=1nHDPfECzXs&index=1&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[1 урок](https://www.youtube.com/watch?v=1nHDPfECzXs&index=1&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 I study
 
@@ -139,7 +139,7 @@ I live in Belarusian
 You know English very well
 I read
 
-[2 теория](https://www.youtube.com/watch?v=Nr9THy3r-ho&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=3)
+[2 урок](https://www.youtube.com/watch?v=Nr9THy3r-ho&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=3)
 
 he she it
 
@@ -305,7 +305,7 @@ She speaks in Spanish very well
 She lines in Moscow
 
 
-[`3 теория`](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[`3 урок`](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 Я / Мы / Ты  / они
 I / We / You / They
@@ -1010,7 +1010,7 @@ My parents often fly to the United States
 My uncle works a lot
 My friend tries to learn Spanish
 
-[6 теория](https://www.youtube.com/watch?v=iI4ubo2Myok&index=13&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[6 урок](https://www.youtube.com/watch?v=iI4ubo2Myok&index=13&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 I want this dress
 I want to buy this dress
@@ -1148,7 +1148,7 @@ My relative wants to study abroad
 They want to help me
 My friends , I really want to thank you
 
-[7 теория](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
+[7 урок](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
 
 want to + глагол
 I want to learn English
@@ -1317,3 +1317,32 @@ I'd like to watch your channel every day
 We'd like to order it right now
 I'd like to eat fish
 He would like to know everything
+
+[`8 урок`](https://www.youtube.com/watch?v=s-jHjH5UgUQ&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=17)
+
+Present Simple (подлежащее + глагол)
+Examples:
+I watch this channel every day
+
+Present Simple (negative form)
+I / We / You /They + don't   + глагол
+He/ She/ It        + doesn't + глагол
+
+I don't watch this channel every day
+I live in England. I don't live in England
+We don't work here / there
+You don't understand it
+They don't see him
+
+I don't get up late. I get up early
+
+I don't go to school. I go to university
+
+I go to work. I don't go to university
+
+I don't go to work. I don't work. I stay at home
+(sit on a chair / stay at home)
+
+I don't like this place. I like another/that place.
+
+
