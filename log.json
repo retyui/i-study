@@ -12,10 +12,28 @@
 		{"07/07/17":
 			{
 				"video_time":"22:18",
+				"mistakes":6,
+				"words":357,
+				"rows":80,
+				"part":0.53
+			}
+		},
+		{"07/07/17":
+			{
+				"video_time":"24:22",
 				"mistakes":5,
 				"words":312,
 				"rows":48,
 				"part":0.6
+			}
+		},
+		{"08/07/17":
+			{
+				"video_time":"34:35",
+				"mistakes":4,
+				"words":455,
+				"rows":73,
+				"part":0.62
 			}
 		}
 	]
