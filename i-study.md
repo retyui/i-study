@@ -1149,3 +1149,51 @@ They want to help me
 My friends , I really want to thank you
 
 [7 теория](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
+
+want to + глагол
+I want to learn English
+I want to order it
+
+would like to(хотел бы) + глагол
+I would like to learn English
+I would like to order it
+
+I'd like to learn English
+I'd like to order it
+
+I'd like to do it (right)now
+I'd like to talk/speak about it/that
+or / and
+
+I'd like to talk about this problem
+I'd like to know it
+I'd like to do it again
+I'd like to do it one more time
+I'd like to buy a new computer
+I'd like to read a book in English
+I'd like to write it down
+I'd like to listen to music
+I'd like to listen to this song
+
+I'd like to go to the party
+I'd like to go to this party
+I'd like to go to the restaurant
+I'd like to do to this/that restaurant
+I'd like to tell you everything
+I'd like to say it
+I'd like to know all the news
+I'd like to tell you all the information
+I'd like to hear this story
+I'd like to hear all the story
+
+I'd like to translate this word
+I'd like to translate this phrase
+I'd like to translate this sentence
+I'd like to work more
+I'd like to work less
+I'd like to work more to get/earn more money
+I'd like to work less to have more free time
+I'd like to understand English speech
+I'd like to understand native speakers
+
+
