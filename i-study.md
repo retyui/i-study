@@ -305,8 +305,8 @@ She speaks in Spanish very well
 She lines in Moscow
 
 
-[](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
-=====================
+[`3 теория`](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
 Я / Мы / Ты  / они
 I / We / You / They
 
@@ -315,7 +315,7 @@ We know it very well
 You understand me
 They live in England
 
-===========================
+
 Он / Она / Это
 He / She / It + Глагол + s
 
@@ -547,7 +547,7 @@ My sister often listens to music
 
 My father has a job (He)
 My mother has a car
-My sister goes to school 
+My sister goes to school
 My brother goes to work (He)
 Our teacher knows English very well
 I also think so
@@ -587,7 +587,7 @@ She eats fish / meat
 
 [04 практика](https://www.youtube.com/watch?v=LQ8gSg-mG1M&index=8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
-Present Simple 
+Present Simple
 
 These lessons help me
 My father goes to work
@@ -676,7 +676,7 @@ Your parents often go to the park
 My brother really likes it
 I have a job
 Your brother swims very well
-My mother likes this idea 
+My mother likes this idea
 My parents know it
 
 
@@ -685,7 +685,7 @@ My parents know it
 Present Simple
 
 I We You They + Глагол
-He She It + глагол +s 
+He She It + глагол +s
 
 I go to work
 She goes to work
@@ -933,7 +933,7 @@ She goes there
 He speaks English fluently
 She washes up the dishes
 
-I try to learn English 
+I try to learn English
 She goes to the park
 My brother plays different games
 He often tries to do it
@@ -1132,7 +1132,7 @@ I want to speak English fluently
 I want to watch your channel every day
 
 I want to go to Italy next year
-Her relative wants to rent a flat 
+Her relative wants to rent a flat
 My sister wants to play different games
 I want to buy this beautiful dress
 I want to study there
@@ -1196,4 +1196,124 @@ I'd like to work less to have more free time
 I'd like to understand English speech
 I'd like to understand native speakers
 
+I'd like to be a teacher
+I'd like to become a teacher
+I'd like to be a manager
+I'd like to become a manager
+I'd like to be a businessman
+I'd like to become a businessman
+I'd like to have my own business
+I'd like to have my own YouTube channel
+We'd like to invite you to the party
+They'd like to join us
+You'd like to live here
+I see you'd like to live here
 
+He'd like to get this job
+She'd like to learn English (here / in this place)
+I'd like to thank you
+I really want to thank you
+I'd really like thank you for your help / support / everything
+
+Very good words!
+
+[7 упражнения](https://www.youtube.com/watch?v=crmUCtK2J-E&index=15&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+My aunt would like to sell her house
+I'd like to know it right now
+I'd like to have more free time
+My relative would like to sell his flat (his/her/their/our... flat)
+I'd like to order it
+My brother would like to play this game
+I'd like this dress
+I'd like to buy this dress
+I'd like to help my friend
+
+I'd like to do it one more time / again
+I'd like to see it
+I'd like to thank you
+I'd like to learn English very hard
+I'd like to talk about it with you
+I'd like to talk with/to you about it
+I'd like to speak with/to you about it
+I'd like to do to Italy next year
+I'd like to live abroad
+I'd like to listen to this song
+
+I'd like to hear this story
+I'd like to read this book
+I'd like to buy a house
+I'd like to know English very well
+I'd like to buy this thing
+I'd like to work less
+They would like to call us
+I'd like to go to this / that restaurant
+
+My friend would like to study in another place
+My sister would like to teach English
+I'd like to study there
+I'd like to listen to music
+I'd like to hear all the story
+I'd like to learn English here
+
+He'd like to get this job
+His secretary would like go get a new job
+I'd like to call them
+I'd like to know all the news
+I'd like to translate this phrase
+I'd like to go to America next month
+
+I'd like to buy this beautiful dress
+I'd like to get more money
+I'd like to have a car
+We'd like to play football
+I'd like a cup of coffee
+I'd like to speak English fluently
+I'd like to watch this video
+
+I'd like to read a book in English
+I'd like to live in another country
+I see (I understand)
+I'd really like to thank you
+I'd like to tell you everything
+I'd like to translate this word
+My brother would like to try to do it
+I'd like to work more
+
+I'd like to call her
+I'd like to thank you for (help / support / everything)
+I'd like to visit this/that place
+I'd like to visit this places
+I'd like to speak English very well
+We'd like to go to the party
+I'd like to fly to New York
+
+I'd like to eat meat
+My sister would like to buy this dress
+I'd like to drink a cup of tea
+I'd like to drink a cup of coffee
+My boss would like to know everything
+I'd like to write it down
+
+I'd like to buy a new computer
+I'd like to work more to get / earn more money
+My relative would like to study abroad
+She'd like to study English (here / there / in this place / in that place)
+They'd like to study in the United States
+
+I'd like to talk to you about this problem
+Our relative wants to rent a flat
+I'd like to drink a cup of tea
+I'd like to drink a cup of coffee
+I'd like to drink a glass of juice
+I'd like to drink a glass of water
+
+I'd like to translate these sentences
+I'd like to translate this text
+I'd like to have my own business
+I'd like to say it
+I'd like to watch your channel every day
+
+We'd like to order it right now
+I'd like to eat fish
+He would like to know everything
