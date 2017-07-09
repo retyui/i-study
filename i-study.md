@@ -1,3 +1,5 @@
+[1 теория](https://www.youtube.com/watch?v=1nHDPfECzXs&index=1&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
 I study
 
 I study university
@@ -30,7 +32,7 @@ You know it
 They have a house
 I like it
 
-02--
+[1 упражнения](https://www.youtube.com/watch?v=1_Jj-oj0iAA&index=2&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 Present Simple
 
 The read English books
@@ -137,8 +139,7 @@ I live in Belarusian
 You know English very well
 I read
 
-
-03
+[2 теория](https://www.youtube.com/watch?v=Nr9THy3r-ho&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=3)
 
 he she it
 
