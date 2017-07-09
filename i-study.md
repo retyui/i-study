@@ -1063,3 +1063,88 @@ I also want to thank you
 Thanks! Thanks you!
 Thanks you very much!
 Thanks a lot!
+
+[0.6 упражнения](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
+
+I want to play computer games
+I want to have a car
+(I eat meat / I have a house / flat / car) !!! В первом примере артикул `a` не ставиться после глагола так как мясо нельзя постичать (это не исчесляемое слово)!!!
+I want tea
+I want to drink a cup of tea
+I want to eat fish
+I want to spaek English very well
+My boos wants more money
+My aunt wants to sell her flat
+
+I want to help you
+I want to thank you
+I want to study in the Uniated States
+I want this thing
+I want this dress
+They want to call us
+My friend wants to study in another place
+I want to learn English with you
+I want to call her
+
+I want to visit this/that place
+His secretary wants a new job
+I want to drink tea
+I want to drink coffee
+I want to order it
+I want to eat meat
+I want to call them
+We want to play football
+I want to watch this video
+I want to live abroad
+
+I want to have my own business
+My brother wants to try to do it
+Hi wants to knows everything
+I want to eat
+My relative wants to play this game
+I want to read this book
+My aunt wants to sell her house
+I want to play this computer game
+I want to call him
+I want to buy a house
+I want to fly to New York
+
+His secretary wants to find a new job
+My boos wants to know everything
+I want to know English
+I want coffee
+I want to go to America next month
+I want to go the cinema
+My sister wants to buy this dress
+It often happens
+I want to help you
+
+She wants to know all the information
+I want to get more money
+I want to drink
+We want to thank you
+I want a cup of tea
+I want to learn English
+Thet want to call me
+We want to know all information
+I want to speak English fluently
+I want to watch your channel every day
+
+I want to go to Italy next year
+Her relative wants to reant a flat 
+My sister wants to play different games
+I want to buy this beautiful dress
+I want to study there
+We want to learn English here
+My sister wants to teach English
+I want a cup of coffee
+I want to live another country
+
+I want to see it
+I want to buy this thing
+I want to help my friend
+My relative wants to study abroad
+They want to help me
+My friends , I really want to thank you
+
+[7 теория](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
