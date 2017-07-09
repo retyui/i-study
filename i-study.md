@@ -1068,17 +1068,17 @@ Thanks a lot!
 
 I want to play computer games
 I want to have a car
-(I eat meat / I have a house / flat / car) !!! В первом примере артикул `a` не ставиться после глагола так как мясо нельзя постичать (это не исчесляемое слово)!!!
+(I eat meat / I have a house / flat / car) !!! В первом примере артикул `a` не ставиться после глагола так как мясо нельзя посчитать (это не исчисляемое слово)!!!
 I want tea
 I want to drink a cup of tea
 I want to eat fish
-I want to spaek English very well
+I want to speak English very well
 My boos wants more money
 My aunt wants to sell her flat
 
 I want to help you
 I want to thank you
-I want to study in the Uniated States
+I want to study in the United States
 I want this thing
 I want this dress
 They want to call us
@@ -1125,13 +1125,13 @@ I want to drink
 We want to thank you
 I want a cup of tea
 I want to learn English
-Thet want to call me
+That want to call me
 We want to know all information
 I want to speak English fluently
 I want to watch your channel every day
 
 I want to go to Italy next year
-Her relative wants to reant a flat 
+Her relative wants to rent a flat 
 My sister wants to play different games
 I want to buy this beautiful dress
 I want to study there
