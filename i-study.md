@@ -1363,7 +1363,7 @@ I don't play the piano. I play the guitar
 
 I don't go to work every day. I work from home(I work at home)
 
-I don't buy newspapers or magaziner. I read them online.
+I don't buy newspapers or magazine. I read them online.
 
 I don't know much about politics. It doesn't interest me
 
@@ -1382,3 +1382,57 @@ I don't do physical exercises at home. I go to the gym
 I don't play computer games all day. I like sport
 
 [`8 упражнения`](https://www.youtube.com/watch?v=yQM0kyMjHoQ&index=18&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I don't watch her channel every day
+I don't go to school. I go to university
+He works a lot. He wants to work less.
+I don't live in England.
+I don't talk to him.
+I don't want to do it right now. I want to do it late
+
+She doesn't teach English. She teaches maths.
+I don't like this song. I like that song.
+I watch this channel every day
+I don't play tennis. She play it.
+I don't get up late. I get up early
+It doesn't cost much. Is costs little
+
+I don't play the piano. I play the guitar
+I don't see him. We don't work there
+She doesn't want to sell her house. She wants to sell her flat
+It doesn't cost little. It costs a lot.
+I understand you but I don't understand native speakers
+
+It doesn't help me
+I don't buy (any) newspapers or magazines. I read them online
+She doesn't like her job. She wants to find another job
+I don't want to do it again. I want to do it right now but very well
+You don't understand it
+
+I don't go to work every day. I work from home
+I don't do physical exercises at home. I go to the gym
+I don't eat meat but I eat fish
+She doesn't think so
+I don't know much about politics
+It doesn't interest me
+
+I don't have much free time. I have little free time
+I don't speak English fluently. I try to learn it
+I don't live in Moscow. I like in New York
+I don't play computer games all day. I like sport
+She works little. She wants to work more
+
+I don't go to work. I don't work. I stay at home
+I don't go to university. I go to work
+I don't like this place. I like another place
+I don't order it here. I order it online
+We don't know it
+She doesn't say it
+She doesn't tell us everything
+
+She doesn't like that channel. She like this channel
+We don't like those lessons. We like these lessons
+She doesn't visit him. She work very hard. She doesn't have free time
+I don't learn English there. I prefer to learn English here. I learn English on the channel [English Galaxy](https://www.youtube.com/channel/UC_J8gecUO4gsesLXbXfjnNg)
+
+[`9 lesson`](https://www.youtube.com/watch?v=eEvbK8AmiOk&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=19)
