@@ -1436,3 +1436,40 @@ She doesn't visit him. She work very hard. She doesn't have free time
 I don't learn English there. I prefer to learn English here. I learn English on the channel [English Galaxy](https://www.youtube.com/channel/UC_J8gecUO4gsesLXbXfjnNg)
 
 [`9 lesson`](https://www.youtube.com/watch?v=eEvbK8AmiOk&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=19)
+
+Present Simple
+I/We/You/They + глагол
+He/She/It + глагол + s (plus)
+
+My girlfriend lives there
+
+Present Simple (negative form)
+I/We/You/They + don't + глагол
+He/She/It   + doesn't + глагол(verb)
+
+My girlfriend doesn't live there
+
+
+My brother doesn't want to do this homework
+My cousin doesn't go to concerts. He doesn't like it
+My best friend doesn't smoke. He wants to be healthy
+He doesn't eat little. He eats a lot / He eats too much
+
+Our director doesn't ask many questions
+My friend doesn't like classical music
+Our lessons don't finish late because they start / begin early
+His parents don't live together. They live separately
+My friend doesn't drive fast. He drives very slowly
+
+My brother doesn't go shopping. My sister goes shopping
+My father doesn't teach history. He teaches English
+My brother doesn't watch football on TV but he likes it
+My friend doesn't walk to work. He goes to work (by car / on foot(пешком))
+My sister goes to school by car / on foot
+My sister walks to school
+
+My sister doesn't listen to him. She listen to her
+My friend don't listen to them. They listen to us
+I don't buy food. My parents usually buy all the food
+
+[`9 exercise`](https://www.youtube.com/watch?v=ccUwnwSLo2g&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=20)
