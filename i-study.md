@@ -1346,3 +1346,39 @@ I don't go to work. I don't work. I stay at home
 I don't like this place. I like another/that place.
 
 
+It doesn't cost much(много). It costs little.
+
+It doesn't cost little. It costs a lot.
+
+She doesn't teach English. She teaches (mathematics / maths)
+
+I don't live in New York. I live in Los Angeles
+
+I don't like this game.
+I like that game
+
+
+I play computer/different games.
+I don't play the piano. I play the guitar
+
+I don't go to work every day. I work from home(I work at home)
+
+I don't buy newspapers or magaziner. I read them online.
+
+I don't know much about politics. It doesn't interest me
+
+
+I don't speak Chinese. I speak English and Spanish.
+
+She doesn't like her job. She wants to find another job
+
+I don't eat meat but I eat fish.
+
+I don't play tennis. She plays it
+
+
+I don't do physical exercises at home. I go to the gym
+
+I don't play computer games all day. I like sport
+
+[`8 упражнения`](https://www.youtube.com/watch?v=yQM0kyMjHoQ&index=18&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
