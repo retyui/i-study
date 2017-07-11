@@ -1473,3 +1473,51 @@ My friend don't listen to them. They listen to us
 I don't buy food. My parents usually buy all the food
 
 [`9 exercise`](https://www.youtube.com/watch?v=ccUwnwSLo2g&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=20)
+
+He doesn't eat little
+My parents don't want to buy this thing
+My borther doesn't get up early. He gets up very late
+My parents don't like this place. They like another place
+
+My boss doesn't want to do it.
+My brother doesn't want to study abroad. He wants to stady in Russia
+My friends don't order it. They buy it here
+Next
+My brother doesn't know it but I now it
+
+My sister walk to school / My sister goes to school on foot
+She doesn't watch that channel. She watches this channel
+My sister goes to school by car
+My brother doesn't understand me
+My best friend doesn't smoke
+He wants to be healthy
+
+My brother doesn't watch football on TV but he like it
+He doesn't eat mush but she eats too much
+My sister doesn't listen to him. She listens to her
+My cousin doesn't go to concerts. He doesn't like it
+That lesson doesn't help. This lesson helps.
+All your lessons really help
+
+My uncle doesn't want to call her
+My parents don't want to live another city.They want to live in this city
+Her cousin doesn't want to do it right now. He wants to do it later
+My friend doesn't walk to work
+My friend doesn't go to work on foot
+He goes to work by car
+
+My teacher doesn't like those lessons. He likes these lessons
+My friend doesn't talk to her
+My friends don't listen to them. They listen to us
+I don't buy food. My parents usually buy all the food
+My brother doesn't want to do that homework
+
+My sister doesn't go to school. She goes to university
+My brother doesn't go shopping. My sister goes shopping
+My father doesn't teach history. He teaches English
+My friends don't watch that channel every day. They watch this channel
+
+This idea doesn't seem intersting
+My brother doesn't want to do this thing
+My sister doesn't want to study abroad but I want it
+My girlfriend doesn't live there. She lives here
