@@ -1476,11 +1476,11 @@ I don't buy food. My parents usually buy all the food
 
 He doesn't eat little
 My parents don't want to buy this thing
-My borther doesn't get up early. He gets up very late
+My brother doesn't get up early. He gets up very late
 My parents don't like this place. They like another place
 
 My boss doesn't want to do it.
-My brother doesn't want to study abroad. He wants to stady in Russia
+My brother doesn't want to study abroad. He wants to study in Russia
 My friends don't order it. They buy it here
 Next
 My brother doesn't know it but I now it
@@ -1517,7 +1517,9 @@ My brother doesn't go shopping. My sister goes shopping
 My father doesn't teach history. He teaches English
 My friends don't watch that channel every day. They watch this channel
 
-This idea doesn't seem intersting
+This idea doesn't seem interesting
 My brother doesn't want to do this thing
 My sister doesn't want to study abroad but I want it
 My girlfriend doesn't live there. She lives here
+
+(`10 lesson`)[https://www.youtube.com/watch?v=udZ06tsmAxk&index=21&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX]
