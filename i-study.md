@@ -1560,4 +1560,70 @@ I need to read these books
 I need to train every day
 I need to study English regularly
 
+We need more exercises
+You need more rest
+They need more lessons
+He heeds more money
+She needs more practice
+My friend needs to learn English
+My brother needs to go there
+My friends need to buy this thing
+My parents need to work more
 
+[`10 exercise`](https://www.youtube.com/watch?v=bAkl6P8fPdU&index=22&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I need to do this thing now
+I need to study more
+He needs to do more physical exercises
+I need to write it down
+I need to watch this lesson one more time
+I need to watch that movie
+My friend needs to learn English
+
+We need to visit him
+I need to watch your English lessons
+You need more rest
+I need to relax more / I need (to have) more rest 
+They need more lessons
+He need more money
+I need to find it
+I need to say it
+
+I need to go to America
+We need more exercises
+I need to try it
+I need to train every day
+I need to save this file
+I need to visit her
+I need to translate this text
+My brother needs to go there
+
+I need to go to work
+I need to call him
+I need to study English more regularly
+I also need to know it
+I need to go to the gym
+He needs to go to Chine
+I need to go to that place
+I need to find a good job
+I need to listen this song
+I need to understand it right now
+
+I need to read these books
+My parents need to work more
+She need more practice
+I need to watch these lessons
+I need to see him
+I need to write a letter
+I need to relax / I need to have a rest
+I need to tell you about this problem
+I need to try to do it
+
+I need to save this document
+I need to remember it
+I need to order it
+My friend need to buy this thing
+I need to check it
+I need to know all the information
+
+[``](https://www.youtube.com/watch?v=rNwFY5SlSUQ&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=23)
