@@ -1626,4 +1626,67 @@ My friend need to buy this thing
 I need to check it
 I need to know all the information
 
-[``](https://www.youtube.com/watch?v=rNwFY5SlSUQ&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=23)
+[`11 repeat`](https://www.youtube.com/watch?v=rNwFY5SlSUQ&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=23)
+
+I go to China / Spain / England
+I go the (United States / United Kingdom)
+I want this thing
+I want to buy this thing
+She wants to speak English fluently
+My friend wants to translate this text
+I want a cup of tea
+I'd like a cup of tea
+I'd like to drink a cup of tea / coffee
+She'd like to visit this place
+They'd like to order it online
+
+I/We/You/They don't + глагол 
+He/She/It + doesn't + глагол
+
+I don't understand
+It doesn't seem interesting
+This idea doesn't seem interesting
+My parents don't want to sell this house
+I need your help
+I need to check it
+I need to do it again
+She needs to go shopping
+My cousin needs to see it
+
+
+She often calls us
+She often calls you
+She often calls him
+She often calls her
+She often calls them
+She often calls me
+
+She has a car
+She has a good car
+He has a big house
+
+
+I need your help
+I really need your help
+
+
+I'd like to hear this story
+I'd like to listen to this song
+
+My brother wants to try to do it
+He wants to learn English to communicate with people from other countries
+I also like it
+I like it, too
+I need to know all the information / news
+I need to know everything
+
+My father does business
+My sister really likes it
+She often washes up the dishes
+My sister often flies to United States
+He reads a lot
+He doesn't to read much
+I know a lot
+I don't know much about this problem
+My brother has(many / a lot / lots of) friends
+I often happens
