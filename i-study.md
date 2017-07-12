@@ -1523,3 +1523,41 @@ My sister doesn't want to study abroad but I want it
 My girlfriend doesn't live there. She lives here
 
 [`10 lesson`](https://www.youtube.com/watch?v=udZ06tsmAxk&index=21&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I need it
+I need your help
+I need your advice
+I need your recommendation
+I need more practice
+I need a good (English) teacher
+I need more lessons
+I need these lessons
+I need a pen
+I need a pencil
+I need money
+I need more money
+
+need to + глагол
+I need to learn English
+I need to find a good job.
+I need to know it right now
+I need to check it
+I need to go to that place
+I need to call him
+I need to visit her
+I need to work very hard
+I need to study more
+I need to remember all these words and phrases
+
+I need to save this document
+I need to save this file
+I need to write a letter
+I need to write it down
+I need to watch this lesson (one time / again)
+I need to see these lessons
+I need to watch that movie / film
+I need to read these books 
+I need to train every day
+I need to study English regularly
+
+
