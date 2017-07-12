@@ -1690,3 +1690,157 @@ I know a lot
 I don't know much about this problem
 My brother has(many / a lot / lots of) friends
 I often happens
+
+[`11 exercise`](https://www.youtube.com/watch?v=e26IpgqtC7Q&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=24)
+
+I see you would like to live here
+My brother wants to study in another place
+My aunt wants to sell her house
+I don't learn English there. I prefer to learn English here
+She doesn't teach English. She teaches maths (mathematics)
+I'd like to read a book in English
+
+My brother would like to try to do it
+I'd like to eat fish
+We'd like to play football
+I'd like to talk to you
+I'd like to tell you everything
+I'd like to work more
+I'd like to fly to New York
+She'd like to learn English here (in this place)
+My brother wants to try to do it
+
+I'd like to get more money
+I don't watch her channel every day
+We'd like to invite you to the party
+I'd like to have my own business
+I want to do it now but very well
+My sister wants to buy this dress
+I'd like to thank you
+I'd like to hear this story
+I'd like to eat meat
+I'd like to watch your channel every day
+
+I don't go to school. I go to university
+I'd like to drink a cup of tea
+I don't buy any newspapers or magazines. I read them online
+We'd like to learn English here
+She doesn't say it. She works a lot. She wants to work less
+I don't live in Moscow. I live in New York
+He goes to work by car
+
+I'd like to go the party
+I'd like to become a manager
+I don't live in England
+They'd like to call us
+I want to help you
+I want to thank you for (your support / help / everything)
+I'd like to talk to you right now
+
+My friend want to study in another place
+My friends don't order it online. They buy it here
+I'd like to live in another country
+I want to learn English
+I don't go to work. I don't work. I stay at home
+I'd like to live abroad
+My boss doesn't want to do it
+It doesn't help me
+
+I want to read this book
+I want to live abroad
+I don't go to work every day. I work from home
+I'd like to talk about this problem
+I'd really like to thank you
+I'd like to drink a cup of tea
+I don't go to university. I go to work
+
+I don't understand native speakers
+My teacher doesn't like those lessons. He like these lessons
+My sister go to school on foot
+My sister walks to school
+Next
+I want to call him
+Thanks! Thank you!
+Thank you very much!
+Thanks a lot!
+
+My sister would like to teach English
+I want to help my friend
+We want to know all the information
+She doesn't watch that channel. She watches this channel
+My sister goes to school by car
+I'd like to be a manager
+I'd like to speak English very well
+He doesn't eat little. Hi eats a lot
+
+I want to have a car
+My sister would like to buy this dress
+She wants to know all the information
+He'd like to get this job
+I want to buy this thing. I like it
+That lesson doesn't help. This lesson helps
+All your lessons really help
+I don't play tennis. She plays it
+
+She doesn't visit him. She works hard. She doesn't have free time
+I want to go to Italy next year
+My brother doesn't want to do this thing
+I'd like to be teacher. My sister also wants to teach English
+They want to call me
+I want to have a flat
+It doesn't interest me
+
+I'd like to have more free time
+I want to visit that place one more time
+I'd like to listen to this song
+We want to know all the information
+My brother doesn't understand me 
+My relative wants to play this game
+We usually play different games
+
+We want to thank you 
+My friend doesn't (go to school on foot / walk to school)
+We want to have our own business
+She doesn't like that channel
+She like this channel
+I don't eat meat but I eat fish
+You don't understand it
+I'd like to listen to it
+I'd like to visit this place
+I'd like to learn English very hard
+
+She wants to work more
+I want to work less
+I'd like to hear this story right now
+I'd like to drink a glass of water
+Her relative wants to rent a flat
+My uncle doesn't to want call her
+I'd like to visit that place
+I'd like to go that restaurant
+We'd like to go to party
+
+I'd like to know English very well
+I'd like to hear all the story
+I want a cup of coffee
+I think I'd like to work more
+I want to go America newt mount
+We'd like to talk to you
+She'd like to become an English teacher
+I want to see it
+We want to see this
+My relative wants to study abroad
+
+I'd like to order it
+I want to have a house
+I'd like to translate this word
+We'd like to translate this phrase
+I don't speak English fluently
+I try to learn it
+Her cousin doesn't want to do it right now. He wants to do it later
+
+I'd like to visit these places
+I want to watch your channel every day. We want to learn English here. I'd really like to thank you for (your help / support / everything)
+I don't buy food. My parents buy all the food
+We'd like to join us
+
+[`12 lesson`](https://www.youtube.com/watch?v=ncp9fZJ4KRg&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=25)
