@@ -1522,4 +1522,4 @@ My brother doesn't want to do this thing
 My sister doesn't want to study abroad but I want it
 My girlfriend doesn't live there. She lives here
 
-(`10 lesson`)[https://www.youtube.com/watch?v=udZ06tsmAxk&index=21&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX]
+[`10 lesson`](https://www.youtube.com/watch?v=udZ06tsmAxk&index=21&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
