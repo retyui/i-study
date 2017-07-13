@@ -1954,7 +1954,7 @@ My friend doesn't go to work on foot
 They want to call me
 She needs more practice
 My friend needs to learn English
-Mt friend doesn't go to concerts. He doesn't like it
+My friend doesn't go to concerts. He doesn't like it
 I'd like to understand English speech
 I need to say it
 I need to study more
@@ -2030,7 +2030,7 @@ She doesn't like her job
 She wants to find another job
 I need to watch that movie / film
 
-I'd like to have my own youtube channel
+I'd like to have my own YouTube channel
 We'd like to work less
 She needs to know all the information right now
 I don't need to study abroad. I want to study in Russia
