@@ -1863,7 +1863,7 @@ I'd like to tell you your lessons help me a lot
 I'd like tell you everything
 I'd like to fly to New York
 We'd like to invite you to the party
-I'd like to have my own business 
+I'd like to have my own business
 
 So
 I'd like to hear this story
@@ -1873,7 +1873,7 @@ She works a lot. She doesn't work mush / She works too much
 I'd like to live/study (in another country / abroad)
 My friend wants to study in another place
 
-So 
+So
 Next
 Thank you! Thanks! Thank you very much! Thank a lot!
 I want to call (him/her/them)
@@ -1898,3 +1898,145 @@ park
 but we say
 We go to school
 We go to work
+
+[`12 exercise`](https://www.youtube.com/watch?v=zvMRtUB55YA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=26)
+
+I want to drink a cup of tea
+We don't know it
+His secretary wants a new job
+We want to help me
+You need more rest
+I'd like to buy this beautiful dress
+We need to more exercises
+My brother would like to play this game
+I want to help you
+I'd like to call her
+I'd like to do it right now
+I'd like to translate this word
+I'd like to go to America next month
+I'd like to study there
+My brother doesn't want to do that homework
+I want to play computer games
+I need to watch these lessons
+
+They'd like to study in the United States
+I want to know it, too / I also want to know it
+I need to check it
+My uncle wants to sell his flat
+She doesn't tell us everything
+I want to buy a house
+I'd like to know it right now
+My friend doesn't talk to her
+Very good words
+
+I'd like to call them
+My friends, I really want to thank you
+I'd like to be a businessman
+I need to train every day
+I need to find it
+I'd like to speak English fluently
+I don't want to do it again
+We want to play football
+Her relative want to rend a flat
+
+I'd like to buy a house
+I need to visit her
+I watch this channel every day
+She wants to know all the information right now
+I need to call him
+I don't like this place. I like another place
+His secretary would like to get a new job
+Next
+I need to translate this text
+I'd like to study there
+
+My friend doesn't go to work on foot
+They want to call me
+She needs more practice
+My friend needs to learn English
+Mt friend doesn't go to concerts. He doesn't like it
+I'd like to understand English speech
+I need to say it
+I need to study more
+I want to call them
+I want to drink
+
+I'd like to write it down
+I'd like to go to this party
+I'd like to talk to you about this problem
+She need to go China
+We'd like to listen to music
+I don't want to do it right now
+I want to do it later
+You see he doesn't understand you
+
+I don't see him
+We don't work there
+I also need  to know it
+I want to speak English fluently
+I want to study in the United States
+I don't do physical exercise at home
+I go to the gym
+I need to go to America
+I need to try it
+I'd like to study in this place
+
+My aunt wants to sell her flat
+My boss wants to know everything
+My parents don't want to live in another city. They want to live in this city
+I want to order it
+I'd like to go to Italy next year
+My parents don't like this place. They like another place
+We want to listen to this song
+I need to order it
+
+I'd like to go to restaurant
+She'd like to study English here
+She works little
+I'd like to know all the news
+I need to go to another place
+I want to get more money
+I'd like to read this book
+She doesn't to know everything
+We want to know all the information
+We want to learn English with you
+
+I need to go to work
+I want to order it
+I need to remember it
+I need to tall you about this problem
+I don't know much about politics
+My parents need to work more
+I really want to thank you for your support
+I'd like to have a car
+I'd like to know it
+I'd like to say it
+
+I need to read these books
+This idea doesn't seem interesting
+I'd like to study in that place
+My sister doesn't want to study abroad but I want it
+I don't play computer games all day. I like sport
+I need to save this document
+My brother doesn't know it but I know it
+I'd like to help my friend
+
+I need to watch your English lessons
+I'd like to work less to have more free time
+I want to get more money and he also wants it
+She would like to sell her house
+I'd like to read a book
+She doesn't like her job
+She wants to find another job
+I need to watch that movie / film
+
+I'd like to have my own youtube channel
+We'd like to work less
+She needs to know all the information right now
+I don't need to study abroad. I want to study in Russia
+I don't have much free time. I have little free time
+He doesn't eat much
+I want to watch your videos
+He eats too much
+
+[`13 lesson`](https://www.youtube.com/watch?v=IxJFNgPYqfo&index=27&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
