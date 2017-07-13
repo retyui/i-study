@@ -1,4 +1,4 @@
-[1 урок](https://www.youtube.com/watch?v=1nHDPfECzXs&index=1&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[`1 lesson`](https://www.youtube.com/watch?v=1nHDPfECzXs&index=1&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 I study
 
@@ -32,7 +32,7 @@ You know it
 They have a house
 I like it
 
-[1 упражнения](https://www.youtube.com/watch?v=1_Jj-oj0iAA&index=2&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[`1 execrise`](https://www.youtube.com/watch?v=1_Jj-oj0iAA&index=2&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 Present Simple
 
 The read English books
@@ -139,7 +139,7 @@ I live in Belarusian
 You know English very well
 I read
 
-[2 урок](https://www.youtube.com/watch?v=Nr9THy3r-ho&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=3)
+[`2 lesson`](https://www.youtube.com/watch?v=Nr9THy3r-ho&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=3)
 
 he she it
 
@@ -305,7 +305,7 @@ She speaks in Spanish very well
 She lines in Moscow
 
 
-[`3 урок`](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[`3 lesson`](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 Я / Мы / Ты  / они
 I / We / You / They
@@ -403,7 +403,7 @@ She has a boyfriend
 
 
 
-[03 практика](https://www.youtube.com/watch?v=95tXqVhMM1k&index=6&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[03 exercise](https://www.youtube.com/watch?v=95tXqVhMM1k&index=6&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 She plays computer games
 He watches TV(television)
@@ -511,7 +511,7 @@ He often goes there
 She often flies to England
 
 
-[04 грамматика](https://www.youtube.com/watch?v=HQWfe-HBg50&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=7)
+[04 lesson](https://www.youtube.com/watch?v=HQWfe-HBg50&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=7)
 
 Present Simple
 
@@ -585,7 +585,7 @@ She eats fish / meat
 
 
 
-[04 практика](https://www.youtube.com/watch?v=LQ8gSg-mG1M&index=8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[04 exercise](https://www.youtube.com/watch?v=LQ8gSg-mG1M&index=8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 Present Simple
 
@@ -680,7 +680,7 @@ My mother likes this idea
 My parents know it
 
 
-[05 повтор](https://www.youtube.com/watch?v=x9v5Snadtag&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=9)
+[05 repeat](https://www.youtube.com/watch?v=x9v5Snadtag&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=9)
 
 Present Simple
 
@@ -735,7 +735,7 @@ I get up early
 He gets up late
 
 
-[05.1 теор.](https://www.youtube.com/watch?v=tgZX-W6RXSk&index=10&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[05.1 lesson](https://www.youtube.com/watch?v=tgZX-W6RXSk&index=10&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 It seems interesting
 She often does it
 She has a boyfriend
@@ -825,7 +825,7 @@ We often play football
 I often listen to music
 
 
-[5.2 практика](https://www.youtube.com/watch?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&v=MyW2oAiQ4Ew)
+[5.2 exercise](https://www.youtube.com/watch?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&v=MyW2oAiQ4Ew)
 
 She relaxes a lot / She has a rest a lot
 I really like this car
@@ -920,7 +920,7 @@ I often play computer games
 My sister has (many/a lot of/lots of) friends
 She swims very well
 
-[`5.3 упражнения`](https://www.youtube.com/watch?v=5OeRHmVJEh8&index=12&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[`5.3 lesson`](https://www.youtube.com/watch?v=5OeRHmVJEh8&index=12&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 He often flies to America
 He goes to works
@@ -1010,7 +1010,7 @@ My parents often fly to the United States
 My uncle works a lot
 My friend tries to learn Spanish
 
-[6 урок](https://www.youtube.com/watch?v=iI4ubo2Myok&index=13&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[6 lesson](https://www.youtube.com/watch?v=iI4ubo2Myok&index=13&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 I want this dress
 I want to buy this dress
@@ -1065,7 +1065,7 @@ Thanks! Thanks you!
 Thanks you very much!
 Thanks a lot!
 
-[0.6 упражнения](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
+[0.6 exercise](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
 
 I want to play computer games
 I want to have a car
@@ -1148,7 +1148,7 @@ My relative wants to study abroad
 They want to help me
 My friends , I really want to thank you
 
-[7 урок](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
+[7 lesson](https://www.youtube.com/watch?v=54yODt85omU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=14)
 
 want to + глагол
 I want to learn English
@@ -1217,7 +1217,7 @@ I'd really like thank you for your help / support / everything
 
 Very good words!
 
-[7 упражнения](https://www.youtube.com/watch?v=crmUCtK2J-E&index=15&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[7 exercise](https://www.youtube.com/watch?v=crmUCtK2J-E&index=15&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 My aunt would like to sell her house
 I'd like to know it right now
@@ -1318,7 +1318,7 @@ We'd like to order it right now
 I'd like to eat fish
 He would like to know everything
 
-[`8 урок`](https://www.youtube.com/watch?v=s-jHjH5UgUQ&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=17)
+[`8 lesson`](https://www.youtube.com/watch?v=s-jHjH5UgUQ&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=17)
 
 Present Simple (подлежащее + глагол)
 Examples:
@@ -1381,7 +1381,7 @@ I don't do physical exercises at home. I go to the gym
 
 I don't play computer games all day. I like sport
 
-[`8 упражнения`](https://www.youtube.com/watch?v=yQM0kyMjHoQ&index=18&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[`8 exercise`](https://www.youtube.com/watch?v=yQM0kyMjHoQ&index=18&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 I don't watch her channel every day
 I don't go to school. I go to university
@@ -1556,7 +1556,7 @@ I need to write it down
 I need to watch this lesson (one time / again)
 I need to see these lessons
 I need to watch that movie / film
-I need to read these books 
+I need to read these books
 I need to train every day
 I need to study English regularly
 
@@ -1583,7 +1583,7 @@ My friend needs to learn English
 We need to visit him
 I need to watch your English lessons
 You need more rest
-I need to relax more / I need (to have) more rest 
+I need to relax more / I need (to have) more rest
 They need more lessons
 He need more money
 I need to find it
@@ -1640,7 +1640,7 @@ I'd like to drink a cup of tea / coffee
 She'd like to visit this place
 They'd like to order it online
 
-I/We/You/They don't + глагол 
+I/We/You/They don't + глагол
 He/She/It + doesn't + глагол
 
 I don't understand
@@ -1794,11 +1794,11 @@ I'd like to have more free time
 I want to visit that place one more time
 I'd like to listen to this song
 We want to know all the information
-My brother doesn't understand me 
+My brother doesn't understand me
 My relative wants to play this game
 We usually play different games
 
-We want to thank you 
+We want to thank you
 My friend doesn't (go to school on foot / walk to school)
 We want to have our own business
 She doesn't like that channel
@@ -1844,3 +1844,57 @@ I don't buy food. My parents buy all the food
 We'd like to join us
 
 [`12 lesson`](https://www.youtube.com/watch?v=ncp9fZJ4KRg&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=25)
+
+We go ahead slowly but very effectively
+
+I see you'd like to live here
+My brother wants to study in another place
+My aunt wants to sell her house
+I prefer to learn English here
+She teaches maths / mathematics
+I'd like to read a book in English
+My brother would like to try to do it
+
+I'd like to talk to you (talk with / speak to/with)
+I'd like to talk about (politics / this problem)
+say/tell
+I'd like to say it / I'd like to say your lessons really help
+I'd like to tell you your lessons help me a lot
+I'd like tell you everything
+I'd like to fly to New York
+We'd like to invite you to the party
+I'd like to have my own business 
+
+So
+I'd like to hear this story
+I'd like to listen to this song
+I don't buy any newspaper or magazines. I read them online
+She works a lot. She doesn't work mush / She works too much
+I'd like to live/study (in another country / abroad)
+My friend wants to study in another place
+
+So 
+Next
+Thank you! Thanks! Thank you very much! Thank a lot!
+I want to call (him/her/them)
+They want to call us
+We want to know all the information
+
+I want to have a flat
+I want to have a house
+It doesn't interest me
+
+We usually play different games
+I'd like to drink a glass of water
+Her relative wants to rent a flat
+
+She'd like to become/be an English teacher
+I'd like to go this/that restaurant
+We'd like to go to the party
+cinema
+theatre
+park
+
+but we say
+We go to school
+We go to work

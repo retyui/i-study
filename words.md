@@ -1,7 +1,11 @@
-seem - кажется
-him - ему
+any - какие либо
+aunt - тетя
+business - бизнес
 her - ей
-them - им
+him - ему
 me - мне
-us - нам
 often - часто
+prefer - предпочитаю
+seem - кажется
+them - им\их
+us - нам
