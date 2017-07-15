@@ -2326,3 +2326,65 @@ Do they see her?
 Do you often see her?
 
 [`15 lesson`](https://www.youtube.com/watch?v=qEPe0uBpGbI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=31)
+
+Present Simple(question)
+Do + I/we/you/they + verb (глагол)
+Do you understand me?
+Yes, I understand you
+
+Does + he/she/it + verb (глагол)
+Does she understand us?
+
+Does she speak English?
+Does hi live there?
+Does it help you a lot?
+
+
+Does it seem interesting?
+Does it look beautiful?
+Does it happen from time to time?
+Does it interest you?
+Does she believe in God?
+Does she remember it?
+Does she often forget it?
+Does she support this idea?
+Does he agree with you?
+Does he do business?
+Does he often stay at home?
+Does he often travel?
+
+Does he feel good?
+Does he feel bad?
+Does it work?
+Does it really work?
+Does he need it urgently?
+Does she need your advice?
+Does she call him?
+Does she often call him?
+Does she often visit him?
+Does he often see them?
+Does it help you?
+Does it really help you?
+
+Does he go to bed early?
+Does she use the Internet every day?
+Does he like orange juice?
+Does she like this subject?
+(this/that/my/your/our...another)
+Does he need money now?
+Does she need support?
+Does he smoke?
+Does she read magazines?
+Does he read newspapers?
+Does she often fly to the United States?
+Does she usually sleep well?
+
+Does she sing songs?
+Does it seem strange?
+Does it seem boring?
+Does it look wonderful?
+Does he play the guitar?
+Does she draw well?
+Does he dance professionally?
+
+[`15 exercise`](https://www.youtube.com/watch?v=L9wMsSxc7-U&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=32)
