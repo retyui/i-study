@@ -2215,3 +2215,60 @@ I want to help you
 I want to have a car
 
 [`14 lesson`](https://www.youtube.com/watch?v=5Lo1k6eg8VI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=29)
+
+Present Simple(negative form)
+
+You have a job
+Do you have a job
+
+Do + I/we/you/they +(plus) verb глагол?
+
+I show good results
+Do I show good results?
+
+We have an interesting offer
+Do we have an interesting offer?
+
+
+You do it professionally (English)
+Professionally - our channel)
+Do you do it professionally?
+
+They often say it
+Do they often say it?
+
+More examples and exercises
+I know it better
+Do I know it better
+
+We often hear these things
+Do we often hear these things?
+
+You often say it
+Do you often say it?
+
+They get 500(five hundred) dollars a mouth
+Do they get 500 dollars a mouth?
+
+I make mistakes
+Do I make mistakes?
+
+
+You also think so
+Do you think so?
+
+We always take her
+Do we always take her?
+
+You see your progress
+Do you see your progress?
+
+Do they often come late?
+
+Do you want to come?
+Do you want to tell this thing?
+Do you want to try to do it?
+Do you need it right now?
+Do you live there?
+
+[`14 exercise`](https://www.youtube.com/watch?v=pgmlgrf4n-k&index=30&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
