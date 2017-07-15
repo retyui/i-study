@@ -2080,4 +2080,138 @@ I'd like to have my own YouTube channel business
 house
 flat
 
+[`13 exercise`](https://www.youtube.com/watch?v=aseVSE6Zr2o&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=28)
 
+I need this information
+I'd like to buy this thing
+I want a cup of tea
+My brother doesn't get up early
+He gets up late
+I need to see him
+He need to do more physical exercise
+I'd like to have my own business
+I want to go to the cinema
+I need to watch this lesson one more time
+
+Thanks / Thank you
+It often happens
+I'd like to tall you everything
+They want to call us
+I'd like to go this restaurant
+I'd like to drink a glass of juice
+I need to go to gym
+His secretary wants to finds a new job
+I want coffee
+I see
+
+I need to relax more / I need (to have) more rest
+We need to visit him
+I want to buy this beautiful dress
+My parents don't want to buy this thing
+I'd like to translate these sentences
+I want to drink coffee
+I'd like a cup of coffee
+I want to drink a glass of water
+I also want to thank you
+
+I don't tank to him
+We don't like those lessons. We like these lessons
+I'd like to fly to New York
+My boss wants more money
+I'd like to work less
+My sister doesn't listen to him. She listens to her
+My brother needs to go there
+I'd like to do it (one more time / again)
+It doesn't cost much
+
+I need to understand it right now
+I'd like to hear all the story
+My brother doesn't watch football on TV
+My girlfriend doesn't like there. She lives here
+We want to thank you
+I want to call her
+I'd like to translate this phrase
+My friends need to buy this thing
+
+I'd like to learn English
+My sister wants to play different games
+I want tea
+I don't lie this song. I like that song
+I'd like to do it again
+Our relative wants to rent a flat
+I'd like to buy a new computer
+I'd like to order it
+
+I'd like to do it one more time
+He wants more money
+He wants to know everything
+He'd like to get this job
+I don't order it here. I order it online
+I want to eat meat
+I need to find a good job
+I want to watch this video
+I want to know English
+I want to study there
+
+My best friend doesn't smoke
+We want to find a new job
+I want to try to do it
+I want to speak English fluently
+I don't play the piano. I play the guitar
+I need to write it down
+I'd like to order it
+You need to relax more / You need to have more rest
+
+It doesn't cost little. It costs a lot
+I want to eat fish
+They need more lessons
+He wants to know everything
+I'd like to become a businessmen
+I'd like to become a businesswomen
+He needs more money
+I'd like to know all the news
+My boos would like to know everything
+
+I want this dress
+I'd like to thank you
+My friend don't listen to them. They listen to us
+I want to learn English right now
+I'd like to buy a computer
+We need to save this file
+I need to write a latter
+I'd like to watch this video now
+We need to translate this sentence
+
+I want to speak English very well
+I want to drink tea
+I'd like to understand native speakers
+I'd like to get/earn more money
+I'd like to drink a cup of coffee
+I need to do this thing now
+I really want to thank you
+I really want to learn English
+I really need to translate this texts
+
+I'd like to work more to get/earn more money
+I don't get up late. I get up early
+I wants to live in another country
+My relative wants to sell his flat
+We'd like to order it right now
+He wants to be healthy
+I'd like to say it
+I understand you very well
+
+I'd like to see it
+We want to learn English
+She doesn't want to sell her house. She wants to sell her flat
+I also want to know it
+I need to study English more regularly
+I wants to play this computer game
+I need to listen to this song
+They want to thank us
+
+My relative would like to study abroad
+I want to help you
+I want to have a car
+
+[`14 lesson`](https://www.youtube.com/watch?v=5Lo1k6eg8VI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=29)
