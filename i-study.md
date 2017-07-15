@@ -2216,7 +2216,7 @@ I want to have a car
 
 [`14 lesson`](https://www.youtube.com/watch?v=5Lo1k6eg8VI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=29)
 
-Present Simple(negative form)
+Present Simple(question form)
 
 You have a job
 Do you have a job
@@ -2272,3 +2272,57 @@ Do you need it right now?
 Do you live there?
 
 [`14 exercise`](https://www.youtube.com/watch?v=pgmlgrf4n-k&index=30&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Do + I/we/you/they + глагол ... ?
+Do you speak English?
+Do you speak Spanish?
+Do you live in Russia?
+Do they know all the information?
+Do I do it very well?
+Do I show good results?
+Do you live together?
+Do we learn English effectively? Of course
+Do they work there?
+Do you try to learn English?
+
+Do we always take her?
+Do you see your progress?
+Do they often say it?
+Do you want to tell her this thing?
+Do we have an interesting offer?
+Do you do it professionally?
+Do you know it better?
+Do they come late?
+Do they usually come late?
+Do they come early?
+Do they usually come early?
+
+Do you live there?
+Do you want to came?
+Do you need it right now?
+Do you think so?
+Do you also think so?
+Do you think so, too?
+Do I make mistakes?
+Do they want to try to do it?
+Do they get 500 dollars a mouth?
+Do they get this money?
+
+Do you have a boyfriend?
+Do you have a girlfriend?
+Do you have a car?
+Do you have a house?
+Do you have a flat?
+Do you have a brother or sister?
+Do you have any brothers or sisters?
+Do you often go to the cinema?
+Do you often to there?
+Do you work or study?
+Do you help your parents?
+
+Do they help you?
+Do they call him?
+Do they see her?
+Do you often see her?
+
+[`15 lesson`](https://www.youtube.com/watch?v=qEPe0uBpGbI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=31)
