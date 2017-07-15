@@ -2040,3 +2040,44 @@ I want to watch your videos
 He eats too much
 
 [`13 lesson`](https://www.youtube.com/watch?v=IxJFNgPYqfo&index=27&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I'd like go to the restaurant
+I want to drink a cup of tea
+You need more rest / You need to relax more
+My brother would like to play this game
+I'd like to study there
+(student; I study at school / university; English courses)
+I learn English by myself
+I learn English here
+
+I want to know it, too / I also want to know it
+She doesn't tell us everything / (all the information / news / story)
+I'd like to be a businessman
+I'd like to be a businesswoman
+I need to train every day
+I need to find it
+
+I don't like this/that place
+I don't like these/those places
+I don't like another place / I like other places
+I want to communicate with people from other countries
+My friend doesn't go to concerts
+I'd like to write it down
+
+I don't do physical exercises at home
+I often stay at home / I work at home
+I have a house
+I go to the gym
+I need to try it
+She'd like to study English here / there
+in this place / in that place
+I'd like to know all the news
+
+This idea doesn't seem interesting
+I need to save this document / file
+I'd like to work less to  have more free time
+I'd like to have my own YouTube channel business
+house
+flat
+
+
