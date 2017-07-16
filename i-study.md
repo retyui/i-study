@@ -2478,3 +2478,33 @@ Does he go to bad early?
 Does she support this idea?
 
 [`16 lesson`](https://www.youtube.com/watch?v=U2MImFYFs-E&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=33)
+
+Present Simple (Question)
+Does his friend want to continue?
+Does our rest include it?
+Does her sister often meet her?
+Do their friends often pay for it?
+
+Does this thing happen very rarely/seldom?
+Do his parents believe in God?
+Does your cousin believe in ghosts?
+Does your boyfriend believe him?
+
+Do my/your colleagues live near this place?
+Does your classmate run very fast?
+Do your neighbors often hear this story?
+Do these lessons help?
+Does this lesson help?
+
+Does this idea seem interesting?
+Do these ideas seem interesting?
+Does his wife usually buy expensive things?
+Does her husband usually buy cheap things?
+
+the (this/that/these/those)
+Do the(these) boys remember it very well?
+Do the girls know it perfectly?
+Does the lesson seem very long?
+Does the story seem very short?
+
+[`16 exercise`](https://www.youtube.com/watch?v=CXuWWp1xnSI&index=34&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
