@@ -2388,3 +2388,93 @@ Does she draw well?
 Does he dance professionally?
 
 [`15 exercise`](https://www.youtube.com/watch?v=L9wMsSxc7-U&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=32)
+
+Does he want to help them?
+Does it help you a lot?
+Does she often visit him?
+Does she remember it?
+Does it help him?
+Does he dance professionally?
+Does it seem strange?
+Does she draw well?
+Does she speak English?
+I speak English
+I read in English
+Does she feel good?
+
+Does he need all the information?
+Does he like these lessons?
+Does she know it, too?
+Does he want to study in another place?
+Does it happen form time to time?
+Does she call him?
+Does he often call her?
+Does he want to read this book?
+Does it really help you?
+
+Does he often travel?
+Does it seem interesting?
+Does she like this idea?
+Does she live there?
+Does it seem boring?
+Does she want to call them?
+Does she often fly to the United States?
+Does she need your advice?
+Does he need your help?
+Does she teach English?
+
+Does he need money now?
+Does he need it urgently?
+Does she often call him?
+Does he prefer to learn English here?
+Does he do business?
+Does he listen to this music?
+Does she use the Internet every day?
+Does he like those lessons?
+Does he play the guitar?
+Does she need to rent a flat?
+
+Does he need to study English more regularly?
+Does she like this subject?
+Does he feel bad?
+Does she try to do it?
+Does she need support?
+Does he often stay at home?
+Does she read magazines?
+Does he need to work more?
+Does she need to study more?
+
+Does he read newspapers?
+Does she understand us?
+Does it look beautiful?
+Does she want to become a teacher?
+Does he really like it?
+Does she usually sleep well?
+Does she often sing this song?
+Do you want to have your own business?
+Do you understand me? Yes, I understand you
+
+Does he live there?
+Does it really help you and your friends?
+Does it work?
+Does he smoke?
+Does he play the piano?
+Does he live there?
+Does it really work?
+Does he agree with you?
+Does it look wonderful?
+Does it interest you?
+
+Does she often forget it?
+Does she need this information?
+Does she talk to him?
+Does he want to have a car?
+Does he want to get more money?
+Does she also know it?
+Does she believe in God?
+Does he often see them?
+Does he want to do it one more time?
+Does he go to bad early?
+Does she support this idea?
+
+[`16 lesson`](https://www.youtube.com/watch?v=U2MImFYFs-E&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=33)
