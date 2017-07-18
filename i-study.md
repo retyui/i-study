@@ -2600,9 +2600,82 @@ Does the book seem very useful
 
 
 My ticket includes it
-My ticket doesn't include it 
+My ticket doesn't include it
 Does my ticket include it?
 
 The lessons start (begin) very early
 The lessons don't start very early
 Do the lessons start very early?
+
+[`17 exercise`](https://www.youtube.com/watch?v=tE-yKac9ako&index=36&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+This result seems very good
+This result doesn't seem very good
+Does this result seem very good?
+
+These results seem very good
+These results don't seem very good
+Do these results seem very good?
+
+
+The results seem good
+The results don't seem good
+Do the result seem good?
+
+The result seems good
+The result doesn't seem good
+Does the result seem good?
+
+My friend has an interesting offer
+My friend doesn't have an interesting offer
+Does my friend have an ...
+
+
+My friends have an interesting offer
+My friends don't have interesting offer
+Do my friend have an interesting offer
+
+My teacher says it
+My teacher doesn't say it
+Does my teacher say it?
+
+
+
+His parents tall him everything
+His parents don't tell him everything
+Do his parents tall him everything?
+
+My brother tries to learn English
+My brother doesn't try to learn English
+Does my brother try to learn English?
+
+
+That thing interests them
+That thing doesn't interest them
+Does that thing interest them
+
+Those things interest her
+Those things don't interest her
+Do those things interest her?
+
+
+Her mother stays at home
+Her mother doesn't stay at home
+Does her mother stay at home?
+
+My best friend needs support now
+My best friend doesn't need support now
+Does my best friend need support now?
+
+
+He has his own business
+He doesn't have his own business
+Does he have his own business?
+
+Our rest includes it
+Our rest doesn't include it
+Does our rest include it
+
+This house looks very expensive
+This house doesn't look very expensive
+Does house look very expensive?
