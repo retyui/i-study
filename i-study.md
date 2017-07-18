@@ -2508,3 +2508,55 @@ Does the lesson seem very long?
 Does the story seem very short?
 
 [`16 exercise`](https://www.youtube.com/watch?v=CXuWWp1xnSI&index=34&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Does her boyfriend believe him?
+Does this lesson seem very long?
+Does your cousin know it better?
+Does your father try to do it
+Does your classmate run very fast?
+He runs fast / I want to learn English fast
+Does the history seem very short?
+Does this thing happen rarely? (seldom)
+
+Do your parents try to learn English?
+Does his friend want to continue it?
+Does your brother use the Internet every day?
+Does it interest you?
+Does this thing interest you?
+Do these things interest you?
+Do your colleagues get 500 dollars a month?
+Does this boy show a good result?
+
+Do these ideas seem interesting?
+Does the teacher want to tell us all the news?
+Does your sister often meet him?
+Do their friend often pay for it?
+Do your neighbors often hear this story?
+Does your cousin believe in ghosts?
+Do his students feel progress?
+Does her husband usually buy cheap things?
+
+Do these things interest you?
+Do his parents believe in God?
+Do these boys  show good results?
+Does this boy often make mistakes?
+Does this idea seem very interesting?
+Does your mother work or stay at home?
+Do your colleagues live near this place?
+Does your wife usually buy expansive things?
+
+Do the boys remember it very well?
+Does your teacher also think so?
+Does your boss know all the information?
+Do your parents think so, too?
+Does your teacher agree with it?
+Does this lesson help?
+Do the girls know it perfectly?
+
+Do her parents always take her?
+Do these lessons help?
+Does that thing seem interesting?
+Does our rest include it?
+Does his student learn English effectively?
+
+[`17 lesson`](https://www.youtube.com/watch?v=d5MFD_5Fwuw&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=35)
