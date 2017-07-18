@@ -2560,3 +2560,49 @@ Does our rest include it?
 Does his student learn English effectively?
 
 [`17 lesson`](https://www.youtube.com/watch?v=d5MFD_5Fwuw&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=35)
+
+He wants to be a businessman?
+Doesn't want to be a businessman
+Does he want to be a businessman?
+
+They have their own business
+They don't have their own business
+Do they have their own business?
+
+
+
+My brother waits for it
+My brother doesn't wait it
+Does my brother wait for it?
+
+My sister loves him (his/her book)
+My sister doesn't love him
+Does my sister love him?
+
+
+My teacher remembers everything (all these thing / all these fact / all the/this information)
+My teacher doesn't remember everything?
+Does my teacher remember everything?
+
+My boss forgets (leaves) different things?
+My boss forget these things
+My boss doesn't forget these thing
+Does my boss forget these things?
+
+
+The company offers us new workers
+The company doesn't offer us new workers
+Does the company offer us new workers?
+
+The book seems very useful
+The book doesn't seem very useful
+Does the book seem very useful
+
+
+My ticket includes it
+My ticket doesn't include it 
+Does my ticket include it?
+
+The lessons start (begin) very early
+The lessons don't start very early
+Do the lessons start very early?
