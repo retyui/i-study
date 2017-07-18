@@ -2679,3 +2679,52 @@ Does our rest include it
 This house looks very expensive
 This house doesn't look very expensive
 Does house look very expensive?
+
+[`18 exercise`](https://www.youtube.com/watch?v=pJB3PzeJbsA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=37)
+When/Where/Why/How/What do/does + подлежащее(subject) (general scheme)
+
+When do I/we/you/they ... ?
+When does he/she/it ... ?
+
+When do you do it?
+When do you watch English movies?
+When do you learn English?
+When do you go to school?
+When does she see him?
+When do they see her?
+When does it happen?
+When does he come?
+
+Why do you learn English?
+Why do you support him?
+Why do you teach English?
+Why do you do it?
+Why does it happen?
+Why does it seem interesting?
+Why does it seem boring?
+Why does it interest you?
+Why do you think so?
+
+What do you think about it?
+What do you sell?
+What do you buy there?
+What do you teach?
+What do you mean?
+What do you want to say?
+What does it mean?
+What do you need?
+What does she need?
+What does he need?
+What do you want?
+
+How do you do it?
+How do you explain it?
+How do they speak?
+How do they understand it?
+How do you pay?
+How do you feel?
+How does she fell?
+How do you get to work?
+How do you get to school?
+How does she study?
+How does he feel?
