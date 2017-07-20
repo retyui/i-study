@@ -2681,6 +2681,7 @@ This house doesn't look very expensive
 Does house look very expensive?
 
 [`18 exercise`](https://www.youtube.com/watch?v=pJB3PzeJbsA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=37)
+
 When/Where/Why/How/What do/does + подлежащее(subject) (general scheme)
 
 When do I/we/you/they ... ?
@@ -2728,3 +2729,77 @@ How do you get to work?
 How do you get to school?
 How does she study?
 How does he feel?
+
+[`18 exercise`](https://www.youtube.com/watch?v=1isWVqGoGvI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=38)
+
+When do you go to work?
+How does hi explain it?
+Where do they live?
+When does it happen?
+What do you think about it?
+How does hi work?
+What does she remember?
+What do you buy there?
+What does she have?
+What do you see?
+
+How does he sell this product?
+How do they sell these things?
+What do they do?
+What does she say?
+How does she spend her free time?
+How do you spend your free time?
+What do you usually eat for breakfast?
+What do you teach?
+
+When does it start / begin?
+How does she speak English?
+Why does he try to do it?
+What does he need?
+How does he get money?
+When does it usually happen?
+Why does he do it?
+Why do you believe him?
+Why do you learn English?
+
+What do they offer?
+Why does he teach English?
+Where do you work?
+Why does it seem boring?
+What do they sell there?
+How does it seem to you? (It seems to me)
+When do they see her?
+Where do they see her?
+Whey does she see him?
+
+Why does it happen so often?
+What do you want to say?
+When do you do it?
+Why do you support them?
+Why does she support him?
+What do they sell online?
+When do you watch English movies?
+Why does it seem interesting (to you)?
+Where do you study?
+
+What does she know about this thing?
+How do you use it?
+Why do you agree?
+Where does he go?
+What does it mean?
+What do you mean?
+How does she do it?
+Why do you do it?
+Why does she tell him about it/that?
+
+When does he come home?
+Where do they do it?
+What does she need?
+How does he say it?
+When do you learn English?
+Why do you think so?
+What do you need?
+Why does it interest to you?
+Where does he run?
+Where does he play this game?
+Why does it seem strange?
