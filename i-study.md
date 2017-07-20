@@ -2845,3 +2845,84 @@ Why does your friend think (differently/ another way)?
 Where does your son want to study?
 How does she find time for everything?
 Why do they refuse to do it? 
+
+[`19 exercise`](https://www.youtube.com/watch?v=cLsQSxopz2s&index=40&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I go to school / work / university
+I go to the park / cinema / theatre
+I go to this school
+
+Where/Why ... do/does + подлежащее + глагол
+
+I want to go there
+I do it well
+I do this work well
+I do this thing well
+I do these things well
+
+How do these students prefer to learn English?
+How does your sister dance?
+When does this lesson usually start
+Why do you use the Internet so often?
+What does your mother teach?
+How does your teacher explain it?
+
+Why do those things seem so bad?
+What do all these things mean?
+When does your friend usually listen to music?
+What does your boss need?
+When do the lessons start?
+Where does your classmate live?
+Why does that thing seem bad?
+
+Where does your neighbor work?
+How does your brother play the guitar?
+Where does your brother study English?
+Why do your parents watch TV(television) so late?
+Why does your boss think so?
+How does the company work?
+How does his girlfriend look like?
+
+What does your grandmother grow in her garden?
+Why does your husband need it urgently?
+How does your sister swim?
+Why do these problems interest you?
+What does your boss promise?
+How does your sister do it?
+
+Why does your aunt rent a flat?
+What does this word mean?
+When do your parents come home?
+How do your teachers explain it?
+Where does your teacher write these words?
+What does this ticket include?
+
+When does your boyfriend find time for it?
+Where does your son study?
+When does that lesson usually finis?
+Why does your best friend hate it?
+How does your friend spend his free time?
+What does your brother do at work?
+
+How does she find time for everything?
+How does your brother find time for all these things?
+What do your parents know?
+How often does your friend use the Internet?
+How do your friend pay for it?
+When do the exams start?
+Where does your father work?
+
+When do the lessons finis?
+Why do these things seem interesting?
+Why do those things seem boring?
+What do your clients usually answer / reply?
+Why do they refuse to do it?
+Why does your friend think differently / another way?
+
+Why does this idea seem strange?
+Why does your best friend support them?
+When does mis wife work?
+Where does their daughter study?
+Why does this student need to learn English?
+
+[`20 lesson`](https://www.youtube.com/watch?v=KzrxD87LlR4&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=41)
