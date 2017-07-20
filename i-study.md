@@ -2803,3 +2803,45 @@ Why does it interest to you?
 Where does he run?
 Where does he play this game?
 Why does it seem strange?
+
+[`19 lesson`](https://www.youtube.com/watch?v=OG6LIQu_MvE&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=39)
+
+When/Where/Why/How/What + do/does + подлежащее + глагол
+Where does she live?
+Where does your sister live?
+
+When do these lessons start?
+What does your brother do at work?
+What do your parents know?
+Where does your father work?
+Why does your boss learn English?
+How does his girlfriend look like?
+
+When does your boyfriend find time for it?
+What does your grandmother grow in her garden?
+When does this lesson usually start?
+When does that lesson usually finis?
+When do the lessons start?
+When do the lessons finis?
+
+What does your wife cook?
+What does your wife usually cook?
+What does your husband usually eat?
+Where do your children study?
+Where does your son study?
+Where does your daughter study?
+What do your suppliers produce?
+What do your partners think about it situation?
+
+What do your clients usually answer (reply)?
+What does this ticket include?
+How does the company work?
+Why does your best friend hate it?
+How does your sister swim?
+What does your boss promise?
+
+When do the exams start?
+Why does your friend think (differently/ another way)?
+Where does your son want to study?
+How does she find time for everything?
+Why do they refuse to do it? 
