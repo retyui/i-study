@@ -2926,3 +2926,75 @@ Where does their daughter study?
 Why does this student need to learn English?
 
 [`20 lesson`](https://www.youtube.com/watch?v=KzrxD87LlR4&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=41)
+
+Do I/we/you/they + verb
+Does he/she/it + verb
+
+Do you find it interesting?
+Does she find it boring?
+
+Do your parents find it strange?
+Does your friend consider it a waste of time?
+
+
+When/Where/Why/How/What + do/does + subject + verb?
+
+Why does he complain?
+What do they buy?
+What do they usually buy?
+
+What does your girlfriend usually cook?
+When does your teacher check it?
+How do their parents control it?
+
+He runs fast
+I want to learn English really fast
+
+When do the exams finish?
+Does your boyfriend want to buy a new car?
+Does she run fast?
+What do they usually have for breakfast?
+Do you have your own business?
+
+My partner doesn't have a interesting offer?
+I don't have a car
+I haven't got a car
+
+Does she get 300 dollars a month?
+
+
+I go to work
+I work very hard
+I have a job
+I like my job
+I have good colleagues
+We work together very well
+I have different hobbies
+I like English
+I learn English online on the channel English Galaxy
+I prefer to learn English effectively
+
+Where do you study?
+Do you have a job?
+Do you have good friends?
+Where does your friend work?
+Where does your friend study?
+How does he spend his free time?
+How does she prefer to learn English?
+Why does she learn Spanish?
+
+I really like it
+Really, I like it
+I think I like it
+
+I get up early
+I usually get up early
++It works w	ell
+-It doesn't work well
+?Does it work well
+
++This idea seems good
+-This idea doesn't seem...
+?Does this idea seem...
+
+[`20 exercise`](https://www.youtube.com/watch?v=vsKE8StR4eg&index=42&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
