@@ -3134,3 +3134,65 @@ What does this word mean?
 Does his friend want to continue?
 Does he need to work more?
 
+[`21 lesson`](https://www.youtube.com/watch?v=YBsfRNbnjNo&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=43)
+
+would like + verb
+I would like to learn English here
+She would like to study there
+
+I'd like ... She'd like ...
+I/We/You/They have an idea
+He/She has an idea
+
+I'd like to talk/speak to/with you(talk to)
+
+
+When do the lessons finis?
+When does the lesson finis?
+Does he want to have a car?
+He runs fast (She usually says it very quickly)?
+Why do these problems interest you?
+What do all these things mean?
+Sorry, what do you mean?
+Why does it seem to you so?
+
+My friend don't have an interesting offer
+Does his wife usually buy expensive things? (cheap; always; often; sometimes)
+Does she listen to this music?
+Does she support this idea?
+Does my best friend need my support now?
+It doesn't interest me
+I have different interests / hobbies
+
+I usually get up early
+Does he want to study in another place?
+Do your colleagues get 500 dollars a month?
+Does your cousin believe in ghosts?
+I believe you?
+I believe in Gog?
+Why does your husband need it urgently(now/right now)?
+My brother doesn't try to learn English
+Does the teacher want to tell us all the news?
+
+Why do these things seem boring?(interesting / boring)
+Do you need it right now?
+Does he play the guitar / violin?
+Do I show good results?
+Does he need to learn English more regularly / often? Does her mother usually stay at home?
+Do you know it better?
+I know it better?
+I know it worse?
+
+do/make
+He doesn't have his own business
+Do his students feel/make progress?
+I think differently / another way
+Do you parents also think so?
+Do your parents think so,too?
+
+Does his friend want to continue?
+
+Let's + verb
+Let's continue!
+
+[`21 exercise`](https://www.youtube.com/watch?v=5tlaKh-HGos&index=44&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
