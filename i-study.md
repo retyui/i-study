@@ -2998,3 +2998,139 @@ I usually get up early
 ?Does this idea seem...
 
 [`20 exercise`](https://www.youtube.com/watch?v=vsKE8StR4eg&index=42&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+When do the exams finis?
+When age the exams over?
+
+Where do you study?
+Does he smoke?
+When do the lessons finis?
+Does he want to have a car?
+He runs fast
+I want to learn English fast
+Why does he teach English?
+Where does she play this game?
+Does he want to read this book?
+
+Do you have a girlfriend?
+Why do these problems interest you?
+When does that lesson usually finis?
+What do all these things mean?
+What do you usually eat for breakfast?
+This result seems very good
+Why does it seem to you so?
+How does he do it?
+
+Does she really like it?
+Where do you buy it?
+What does she have?
+How do you use it?
+Why do those things seem boring?
+This house doesn't look expensive
+Do you need it right now?
+Does he have his own business?
+Do these things interest you?
+
+This result doesn't seem very good
+Does he play the guitar?
+Does she call him?
+Do I show good results?
+Does he need to learn English mo regularly?
+Does she remember it?
+How do they sell these things?
+What do you see?
+When does it start / begin?
+
+Does he like those lessons?
+How do your friends pay for it?
+Her mother usually stats at home
+Does his wife usually buy expensive things?
+Does he want to help them?
+Do you know it better?
+My friends don't have an interesting offer
+Does she listen to this music?
+
+Does she support this idea?
+Why do these things seem interesting?
+Does she need support?
+What do you teach?
+Why does she support him?
+Do his parents tell him everything?
+Do they come home early?
+Does he dance professionally?
+
+Does that thing interest them?
+Does she need to study more?
+Does my best friend need my support now?
+When do you learn English?
+Do you think so, too? / Do you also think so?
+Do they get 500 dollars a mouth?
+Does he want to study in another place?
+Do you have a car?
+
+Does you cousin believe in ghosts?
+Do you speak Spanish?
+When do you go to work?
+Do you live in Russia?
+Do you colleagues get 500 dollars a month?
+Does he often call her?
+Why does your husband need it urgently?
+Do these lessons really help?
+
+Does this idea seem interesting?
+My best friend doesn't need support now?
+Do her parents always take her?
+My brother doesn't try to learn English?
+Does it look beautiful?
+Where does your teacher write these words?
+Does she often sing this song?
+Where does your classmate live?
+Do you want to come?
+
+How does your sister do it?
+Do you speak English?
+This result doesn't seem good
+Does the teacher want to tell us all the news?
+How does he sell this product?
+Do you usually come early?
+Why do you do it?
+Do they always take her?
+
+Where does he run?
+Do you live there?
+Does she feel good?
+What does this ticket include?
+Do they call him?
+Does he agree with you?
+He doesn't have his own business
+Do his student feel progress?
+I think differently / I think another way
+
+Where does your brother study
+These results seem good
+Do your parents also think so? / Do your parents think so, too?
+How does she find time for everything?
+How often does your friend use the Internet?
+Why does your boss think so?
+Does it look wonderful?
+Do his parents believe in God?
+
+Do you like these lessons?
+Does your teacher like these lessons?
+Does your brother try to learn English?
+Does your boss know all the information?
+What does she say?
+Does your boyfriend believe him?
+Do your parent want to learn English?
+Does this thing interest you?
+
+Do you often go to the cinema?
+Where do they do it?
+Does she often call him?
+Do your neighbors know this story?
+Does he often travel?
+How do they get this money?
+What does this word mean?
+Does his friend want to continue?
+Does he need to work more?
+
