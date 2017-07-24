@@ -3196,3 +3196,122 @@ Let's + verb
 Let's continue!
 
 [`21 exercise`](https://www.youtube.com/watch?v=5tlaKh-HGos&index=44&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Why does it seem strange?
+Does your classmate run very fast?
+Does he feel bad?
+Does she like this idea?
+What does your mother teach?
+Does he want to do it one more time?
+Do you have a house?
+Does she often fly to the United States?
+What does it mean?
+
+Does she teach English?
+Why does your best friend support them?
+How does your teacher explain it?
+Does this lesson seem very long?
+Does your brother use the Internet every day?
+Do you work or study?
+Why do those things seem bad?
+Do they know all the information?
+
+Does this house look expensive?
+Does she also know it?
+What does your brother do at work?
+Do you often see her?
+Does she use the Internet every day?
+How does your sister dance?
+Does it seem boring?
+Does she speak English?
+Do you want to tell her this thing?
+
+Does her mother stay at home?
+Does she need to rent a flat?
+When do you watch English movies?
+Does it interest you?
+Do your friends have an interesting offer?
+What does your boss need?
+How does the company work?
+Do you see your progress?
+
+Does she know it, too?
+When does he come home?
+Do you need his help?
+Those things don't interest him
+What do you think about it?
+His parents don't tell him everything
+Do they usually come late?
+Why does he try to do it?
+Does this boy show a good result?
+Does she usually sleep well?
+
+Does he do business?
+Do the results seem good?
+Does this thing happen rarely?
+How do these student prefer to learn English?
+Does our rest include it?
+Does she need it urgently?
+Does he need all the information?
+How does she explain it?
+
+Do your parents think so, to?
+Does your mother work or stay at home?
+Do I do it very well?
+Does it really help you?
+Do you have any brother or sisters?
+Do they see her?
+Do you think so?
+Does she need this information?
+How does your friend spend his free time?
+
+When does it usually happen?
+Where does your father work?
+Does his sister often meet him?
+Why does it seem boring?
+My friend don't have an interesting offer?
+Do you understand me?
+These results don't seem very good
+Does she understand us?
+
+Does she often forget it?
+DO you really understand me?
+When does your boy friend fin time for it?
+Does it seem really strange?
+Do you have a boyfriend?
+Does your cousin know it better?
+Does it help him?
+Does she want to call them?
+
+Do these results seem very good?
+My teacher doesn't say it
+Where does their daughter study?
+Does she believe in God?
+When do you do it?
+Why do you agree?
+Does this lesson help you?
+Why does this idea seem strange?
+Do these ideas seem interesting?
+
+Does it really work?
+Do they come late?
+Does it interest you?
+Do you do it professionally?
+What does she know about this thing?
+Does your friend have an interesting offer?
+Do these girls know it very well?
+Does he want to get more money?
+Does your father try to do it?
+
+Do these boys remember it very well?
+Does she read magazines?
+How does it seem to you?
+Does she need your advise?
+What does she need?
+Does your teacher often say it?
+Do you have a flat?
+Why do you learn English?
+Why does he make so many mistakes?
+This results seems good?
+
+
