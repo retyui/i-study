@@ -3195,7 +3195,7 @@ Does his friend want to continue?
 Let's + verb
 Let's continue!
 
-[`21 exercise`](https://www.youtube.com/watch?v=5tlaKh-HGos&index=44&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+[`21.1 exercise`](https://www.youtube.com/watch?v=5tlaKh-HGos&index=44&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
 Why does it seem strange?
 Does your classmate run very fast?
@@ -3314,4 +3314,140 @@ Why do you learn English?
 Why does he make so many mistakes?
 This results seems good?
 
+Does this result seem very good?
+Why does he do it?
+Do you help your parents?
+How does your brother play the guitar?
+This thing interest them?
+How does she spend her free time?
+What does she remember?
+Do you want to have your own business?
+Why do you support them?
 
+[`21.2 exercise`](https://www.youtube.com/watch?v=LH8NbB-nsW4&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=45)
+
+Where do you work?
+What does your boss promise?
+Does your teacher agree with it?
+Where do they live?
+My friend have an interesting offer?
+What do they offer?
+Why does it happen so often?
+How does his girlfriend look like?
+What do you need?
+
+How does she speak English?
+When do the lessons start / begin?
+Do those things interest her?
+Does she want to become a teacher?
+My brother tries to learn English?
+Why does your friend think so?
+Does he live there?
+Why do you think so?
+Those things interest her?
+
+Does she try to do it?
+Do we learn English effectively?
+Do these boys show good results?
+Why does that thing seem bad?
+Where does his neighbor work?
+What do your clients usually answer / reply?
+Why does this student need to learn English?
+What do they want to say?
+Why does your aunt want to rent a flat?
+
+When does she see him?
+Why does your best friend hate it?
+Does she often visit him?
+Does she like this subject?
+Does she talk to him?
+Do you have an interesting offer now?
+Does he play the piano?
+These results don't seem good
+What do they sell there?
+
+Why do you use the Internet so often?
+Does this story seem short?
+Does her husband usually buy cheap things?
+That thing doesn't interest them
+This house looks very expensive
+Does it really help you and your friends?
+Does he often stay at home?
+My best friend needs support now
+
+Does that thing seem interesting?
+Do you colleagues live near this place?
+Does it seem really interesting?
+What do they do?
+Do you try to learn English?
+Do these girls make mistakes  when they speak English?
+Why do you believe him?
+Where to they see her?
+
+Why do they refuse to do it?
+Do you live together?
+Where does his wife work?
+How does your brother find time for all these things?
+His parents tell him everything
+Where does he go?
+Our rest doesn't include it
+Do you often go there?
+Her mother doesn't stay at home. She works
+My teacher says it
+Does he go to bad early?
+
+This result seems good
+Why does she tell him about it?
+Does she live there?
+How does she say it?
+Does it help you a lot / greatly?
+Does this result seem very good?
+How does it work?
+Does that thing interest you?
+Do these things interest you?
+
+When do you see him?
+Do they want to try to do it?
+Why do your parents watch TV so late?
+When does this lesson usually start / begin?
+Do their friends usually pay for it?
+Do they work there?
+Does she often see her boss?
+Does your teacher also think so?
+
+When do your parents come home?
+Does she draw well?
+How does he get money?
+Where does it happen?
+Do they often say it?
+Where does your son study?
+When do these exams start / begin?
+Why does it interest you?
+What do your grandmother grow in the garden?
+Of course / Certainly / Sure
+
+Does he read newspapers?
+Does it happen from time to time?
+How does your sister swim?
+How do you spend your free time?
+Does he prefer to learn English here?
+Does their rest include it?
+How do your teacher explain it?
+Does he live there?
+
+What does he need?
+Do they help you?
+Does it seem to her really interesting?
+Does his student learn English effectively?
+When does your friend listen to music?
+What do they sell online?
+My friend has an interesting offer?
+Does he need money now?
+
+Do you have a brother or sisters?
+Do I make mistakes?
+He has his own business?
+Do you parents know it?
+What do they know?
+How do you do it exercises?
+What results do you have?
