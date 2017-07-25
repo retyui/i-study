@@ -3446,8 +3446,84 @@ Does he need money now?
 
 Do you have a brother or sisters?
 Do I make mistakes?
-He has his own business?
+He has his own business
 Do you parents know it?
 What do they know?
 How do you do it exercises?
 What results do you have?
+
+[`22 lesson`](https://www.youtube.com/watch?v=v7s7TyQ6-XU&index=46&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+He speaks English very well
+He cooks very well
+Good! Very good!
+
+Present Simple - to be
+!!!Если мы что-то говорим в простом настоящем времени и если у нас нет глагола в предложении то: мы должны использовать форму глагола `to be -> I am; We/You/They age; He/She/It is`!!!
+Speak English naturally!
+I am in the park = I'm in the park
+We age at home = We're at home
+You age a good teacher = You're a good teacher
+They are talented students = They're talented students
+He is my good friend = He's
+She is my girlfriend = She's
+It it interesting = It's
+
+I'm; We're/You're/They're;He's/She's/It's
+
+I'm in my room !!! Если притяжательное местоимение (в нашем случае `my`) артикул не ставится !!!
+I'm outside
+I'm inside
+
+We're good students
+We're hard-working
+We're hard-working students
+You're the best teacher
+You're a good teacher
+You're kind
+
+He is a good person
+They're good people (person - people)
+They're here
+They're there
+He's the best student
+He's a sportsman
+He's my boss
+She's a manager
+She's a housewife
+She's a beautiful girl BUT
+She's beautiful
+
+It's my new car
+It's his old car
+It's a big building
+It's a small house
+It's on the table
+It's on my desk
+It's on my bed
+It's in this city / town
+It's good
+It's a good idea
+It's bad
+It's a bad idea
+It's a good result
+
+It's a long story
+It's an interesting detail
+It's short phrase
+It's important
+It's an important thing
+It's difficult
+It's a big problem
+It's a small problem
+It's so interesting
+
+I'm busy
+I'm tired
+We're at the airport
+You're a good friend
+They're in Russia
+They're in the United States / Kingdom
+He's in China
+She's in America
+It's in our country
