@@ -3662,3 +3662,67 @@ I'm at home
 I'm a good student and you're a good teacher
 
 [`23 lesson`](https://www.youtube.com/watch?v=9l1uwum8zNM&index=48&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Present Simple - to be
+I'm; We're/You're/They're; He's/She's/It's
+
+The lesson is interesting
+You're lessons are really good
+This student is talented
+The room is small
+This idea is very interesting
+It result is real
+These things are very strange
+These results are wonderful
+
+These results are terrible
+This teacher is the best teacher in the world
+This lesson is free
+All these lessons are free
+This lesson is very useful
+All these lessons are very useful
+This method is very effective
+
+The boy is talented
+My sister is in bed
+My brother is in the kitchen
+My mother is in the bathroom
+My parents are angry
+The keys are on the table
+The book is red
+The number is short
+The hotel is expensive
+The ticket is cheap
+The tickets are cheat
+
+My friend is ill (sick)
+The chair is comfortable
+This chair is comfortable
+These chairs are comfortable
+The information is useful
+This information is useful
+These recommendations are the best
+You're the best
+These lessons are the best
+
+The boy is strong
+The girl is beautiful
+The book is boring
+The information is useful (full of use) / useless (without use)
+These people are rich
+His uncle is poor
+
+I'm 30 (thirty) / 20 (twenty)
+I'm from Russia
+I'm Russian
+I'm a manager
+He's 25
+My friend is 25
+He's from America / the United States
+My friend is from the United States
+He's American
+My friend is American
+He's a designer
+My friend is a designer
+
+[`23 exercise`](https://www.youtube.com/watch?v=t3OfrLOBVZk&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=49)
