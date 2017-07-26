@@ -2844,7 +2844,7 @@ When do the exams start?
 Why does your friend think (differently/ another way)?
 Where does your son want to study?
 How does she find time for everything?
-Why do they refuse to do it? 
+Why do they refuse to do it?
 
 [`19 exercise`](https://www.youtube.com/watch?v=cLsQSxopz2s&index=40&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
@@ -3527,3 +3527,138 @@ They're in the United States / Kingdom
 He's in China
 She's in America
 It's in our country
+
+[`22 exercise`](https://www.youtube.com/watch?v=6D-YVTqZQY4&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=47)
+
+Глагол!
+Do it!
+Say it!
+Check it!
+
+No! Don't + глагол
+Don't do it! Don't touch it!
+
+It's good
+It's a good idea
+It's so difficult
+He's my good friend
+Speak English naturally!
+It's my new car
+It's an interesting offer
+She's beautiful
+We're good students
+It's too long
+
+It's bad
+It's a bad idea
+It's so important
+It's an easy exam
+It's a difficult exam
+She is a manager
+I'm a sales manager
+It's a good example
+I'm in the park
+You're a good teacher
+
+Good! Very god! It's (so) good
+You speak / know English very well
+They're talented students
+You're talented
+I'm in my room
+It's a short phrase
+It's difficult
+They're in Russia
+It's a small problem
+It's a very a good lesson
+It's a big problem
+It's so good
+
+We're in the park now
+He's a sportsmen
+It's so easy
+It's in this country
+He's my father
+He's at school
+It's a big building
+He's his old car
+He's the best student
+We're busy now
+
+It's a good result
+It's an excellent result
+She's in America
+I'm tired
+I want to speak English naturally
+It's in this city / town
+It's a small mistake
+It's very interesting
+It's in my flat
+She's tired
+
+She's my mother
+It's interesting
+She's a beautiful girl
+They're good parents
+It's on the table
+It's on my desk
+You're a good teacher
+She's her daughter
+It's on my bed
+It's a big mistake
+
+It's an important thing
+He's a talented student
+It's an important subject
+It's a good lesson
+I'm inside
+It's a good exercise
+It's really interesting
+He's my boss
+You're a good friend
+He's tired
+
+He's a director
+They're our friend
+They're in the United States
+They're in the United Kingdom (in the UK)
+It's boring
+It's a professional teacher
+You're the best teacher
+We're hard-working students
+He's the best teacher in the world
+I'm a hard-working student
+
+He's his son
+It's too short/long
+It's so bad/good
+It's a interesting thing
+It's important
+It's a difficult thing
+It's a long story
+I'm outside
+It's a very interesting lesson
+They're students
+
+He's my old friend
+It's a bad result
+He's my classmate
+She's a housewife
+We're hard-working
+He's my boyfriend
+You're king
+He's a good person
+It's an interesting detail
+It's so interesting
+
+We're at home
+They're in Spain
+It's the best thing
+We're at the airport
+It's a very interesting thing
+I'm busy
+He's a kind person
+They're good people
+I'm at home
+I'm a good student and you're a good teacher
+
+[`23 lesson`](https://www.youtube.com/watch?v=9l1uwum8zNM&index=48&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
