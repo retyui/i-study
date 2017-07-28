@@ -3726,3 +3726,115 @@ He's a designer
 My friend is a designer
 
 [`23 exercise`](https://www.youtube.com/watch?v=t3OfrLOBVZk&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=49)
+
+All these  lessons are very useful
+The ticket is  expensive
+The chair is comfortable
+My friend is 25 (years old)
+My cousin is tired
+These lessons are the best
+The pen is black
+The offer is so interesting (sentence)
+I'm Russian
+The girl is beautiful
+
+The video is really useful
+His father is a businessman
+My relatives are in America
+This information is useless
+The key is on the table
+These results are wonderful
+His son is lazy
+This teacher is the best teacher in the work
+This lesson is free
+These people are rich
+
+He's is designer
+You're lessons really good
+The book is boring
+My best friend is a businessman
+The lesson is difficult
+You are the best teacher in the world
+The hotel is expensive
+My parents are happy
+This room is small
+My mother is in the bathroom
+
+This lesson is very useful
+The number is too long
+He's a student
+This result is real
+The tickets are cheap
+My parents are angry
+The chair is comfortable
+My book is very busy
+These chairs are comfortable
+All his lessons a free
+He is ill / sick
+He feels ill / sick
+
+This method is really effective
+My mother is a doctor
+Your lesson is very informative
+My relative is in England
+These recommendations are the best
+Her car is new
+He's Russian
+This thing is terrible
+That method is very effective
+The story is so long
+
+These results are terrible
+This boy is the best student
+This information is useful
+These students are so talented
+He's American
+The lesson is interesting
+The manager is very strange
+This idea is new
+His keys are on the table
+The boy is talented
+
+The exam is easy
+I'm 30 (years old)
+His brother is in hospital
+This student is very talented
+Her daughter is very hard-working
+This lesson is free. We all know it (Everyone knows it / All people know it)
+The girl is talented
+Your ideas are wonderful
+
+His father is a businessman and his mother is a doctor
+His girlfriend is beautiful
+These things are very strange
+She's 25
+The book is in the kitchen
+This problem is small
+He is Russian
+My father is 40
+I'm a manager
+His father is rich
+
+His idea is good
+Her ideas are interesting
+This house is new
+That house is old
+All these houses are new
+All those houses are old
+This building is very high
+This person is very good
+My computer is very powerful
+My computer is new
+
+I'm American
+They're from America
+My progress is real
+My friend is  ill
+My sister is in bad
+This exercise is too difficult
+That exercise is too easy
+These exercises are so useful
+Those exercises are useless
+My English teacher is very professional
+
+[`24 lesson`](https://www.youtube.com/watch?v=YdNj8kI7irQ&index=50&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
