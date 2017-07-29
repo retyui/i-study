@@ -3901,3 +3901,88 @@ It isn't on the right. It's on the left
 It isn't a good choice. It's a bad choice
 
 [`24 exercise`](https://www.youtube.com/watch?v=80qrwgz_mWc&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=51)
+
+Present Simple to be (negative)
+He isn't lazy
+He isn't a lazy person
+I'm not at home. I'm at work
+We aren't at home. We're in the park
+It isn't an effective method
+I'm not married. I'm single.
+She isn't a designer. She's a doctor
+
+He isn't hungry. He's thirsty
+He isn't a businessman. He's a manager
+We aren't friends and we aren't enemies
+It isn't cold. It's warm
+I'm not a tired
+It isn't bad. It's good
+It isn't a bad idea. It's a good idea
+
+I'm not American. I'm Russian
+It isn't sunny.
+It's cloudy
+It's rainy
+It isn't windy
+They aren't expensive
+It isn't a cheep thing
+
+They aren't rich. They're poor
+It isn't the best choice
+It isn't comfortable
+It isn't effective
+She isn't a manager. She's a housewife
+It isn't an expensive thing
+It isn't strange
+It's normal
+
+You aren't right
+It isn't interesting
+It isn't an interesting book
+It isn't boring
+It isn't a boring movie (film)
+They aren't stupids / silly / foolish
+They're clever / smart
+It isn't on the table
+It's on the chair
+
+It isn't free. You need to pay
+It isn't difficult
+It's easy
+It's obvious
+He isn't an angry person
+He isn't rich
+He isn't a rich person and he isn't busy
+
+We aren't inside
+We're outside
+It isn't an interesting offer
+My friends aren't there
+My friends are here
+I'm not hungry
+I'm don't want to eat
+I'm not from Canada. I'm from the United States
+
+She isn't American. She's Russian
+It isn't a new car. It's an old car
+They aren't in America. They're in London
+It isn't a bad choice. It's a very good choice
+They aren't in the park. They're in another place
+It isn't on the right. It's on the left
+It isn't a boring lesson
+
+It isn't useful
+You aren't lazy. You're hard-working
+They aren't partners. They are only (just) friend
+I'm not at home. I'm in the office
+We aren't students
+He isn't our boss
+She isn't our teacher
+We aren't classmates
+
+She isn't my girlfriend
+He isn't my boyfriend
+It isn't far
+It's near
+
+[`25 lesson`](https://www.youtube.com/watch?v=eXzVr6BCfFo&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=52&spfreload=1)
