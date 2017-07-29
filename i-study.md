@@ -3838,3 +3838,66 @@ Those exercises are useless
 My English teacher is very professional
 
 [`24 lesson`](https://www.youtube.com/watch?v=YdNj8kI7irQ&index=50&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+You are a good teacher
+You are a very good teacher
+You are an amazing teacher
+You are a wonderful teacher
+You are a great teacher
+
+Present Simple (negative) to be
+I am at home - I am not at home
+I'm at home - I'm not at home - I'm at work
+We are inside - We are not inside
+We're inside - We aren't inside
+You are right - You are not right
+You're right - You aren't right - You're wrong
+They are rich - They are not rich
+They're rich - They aren't rich - They're poor
+
+He is a businessman - He is not a businessman
+He's a businessman - He isn't a businessman - He's a manager
+She is a manager - She is not a manger
+She's a manager - She's isn't a manager - She's a businesswoman
+It is a new car - it is not a new car
+It's a new car - Is isn't a new car - It's an old car
+
+I'm not; We/You/They aren't;
+He/She/It isn't
+
+I'm  not married. I'm single
+We aren't friend and we aren't enemies
+They aren't partners. They are only(just) friend
+He isn't hungry. He isn't thirsty
+She isn't American. She's is Russian
+It isn't bad. It's very good
+
+I'm not hungry.I don't want to eat
+We aren't at home. We are in the park
+You aren't lazy. You're hard-working
+They aren't stupid (silly). They're clever (smart)
+
+She isn't our teacher. She's their teacher
+He isn't her friend. He's our friend
+It isn't good idea. It's a very good bad idea
+
+I'm not busy. I'm free
+We aren't student. We work
+You aren't right. You wrong / You're mistaken (I'm mistaken)
+They are together but they aren't married
+He isn't tell. He is short
+It isn't on the table. It's on the chair
+
+I think he is right if I'm not mistaken
+It isn't cold. It's warm
+It isn't good. It's bad
+It isn't interesting. It's boring
+It isn't strange. It's normal
+It isn't difficult. It's easy
+It's obvious
+It isn't sunny. It's cloudy. It's rainy. It's windy
+It isn't an interesting job. It's a boring job
+It isn't on the right. It's on the left
+It isn't a good choice. It's a bad choice
+
+[`24 exercise`](https://www.youtube.com/watch?v=80qrwgz_mWc&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=51)
