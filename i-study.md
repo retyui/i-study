@@ -3986,3 +3986,54 @@ It isn't far
 It's near
 
 [`25 lesson`](https://www.youtube.com/watch?v=eXzVr6BCfFo&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=52&spfreload=1)
+
+I need (more) free time
+I need to train
+
+Present Simple to be (negarive)
+
+I'm not; We/You/They aren't; He/She/It isn't
+
+The man isn't rich
+The woman isn't a manager
+My result isn't so bad
+Our results aren't brilliant
+This information isn't so important
+His flat isn't small 
+These ideas aren't new
+
+Their ideas aren't so innovative
+This thing isn't popular now
+These things aren't popular now
+This knowledge isn't basic
+His live isn't easy
+Her live isn't very difficult
+These lessons aren't useless. They are very useful
+
+My partner isn't afraid of difficulties
+The car isn't new. It's old
+His lifestyle isn't healthy (style of life)
+Her way of live isn't healthy
+His sister isn't pregnant
+This job isn't well-paid
+This place isn't dangerous
+
+My friends aren't in Moscow
+Your money isn't enough
+This money isn't enough
+That money isn't enough
+Our computer isn't powerful
+His partners aren't reliable
+Her boyfriend isn't a businessman
+Their plan isn't so bad
+
+This channel isn't so bad
+That channel isn't popular
+These videos aren't so funny
+Those videos aren't good enough
+This story isn't long 
+That book isn't short
+These things aren't so important
+Those people aren't right
+
+[`25 exercise`](https://www.youtube.com/watch?v=9Ft39tRZqFA&index=53&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)

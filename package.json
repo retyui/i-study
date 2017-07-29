@@ -1,14 +1,14 @@
 {
-  "name": "i-study",
-  "version": "1.0.0",
+  "name": "i-study-english",
+  "version": "6.6.6",
   "main": "index.js",
   "scripts": {
-    "test": "yaspeller-ci ./README.md ./i-study.md ./words.md"
+    "test": "yaspeller-ci ./i-study-words.md ./i-study.md ./README.md ./words.md"
   },
   "repository": "https://github.com/retyui/i-study.git",
   "author": "DAVID♥ <vamnemne@gmail.com>",
   "license": "MIT",
   "dependencies": {
-    "yaspeller-ci": "^0.6.0"
+    "yaspeller-ci": "0.6.0"
   }
 }
