@@ -3990,7 +3990,7 @@ It's near
 I need (more) free time
 I need to train
 
-Present Simple to be (negarive)
+Present Simple to be (negative)
 
 I'm not; We/You/They aren't; He/She/It isn't
 
@@ -3999,7 +3999,7 @@ The woman isn't a manager
 My result isn't so bad
 Our results aren't brilliant
 This information isn't so important
-His flat isn't small 
+His flat isn't small
 These ideas aren't new
 
 Their ideas aren't so innovative
@@ -4031,9 +4031,110 @@ This channel isn't so bad
 That channel isn't popular
 These videos aren't so funny
 Those videos aren't good enough
-This story isn't long 
+This story isn't long
 That book isn't short
 These things aren't so important
 Those people aren't right
 
 [`25 exercise`](https://www.youtube.com/watch?v=9Ft39tRZqFA&index=53&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+!!!Артикул не ставиться  если:
+another / other
+my/your/... притяжательные местоимения
+this/that
+!!!
+
+It's a brilliant idea
+nowadays
+I'm (not) tired
+I'm (not) afraid
+I'm (not) surprised (at all)
+
+Those problems aren't big
+It isn't an old building
+The book isn't cheap
+The result isn't good enough
+My problems aren't big
+This thing isn't popular now
+The tests in this book aren't easy
+My boos isn't at work
+
+His progress isn't big
+His lifestyle isn't healthy
+My friend aren't in Moscow
+The results aren't good enough
+These things aren't good enough
+Her progress isn't good enough
+These ideas aren't new
+That problem isn't big
+
+This story isn't long
+This job isn't well-paid
+These videos aren't so fanny
+My parents aren't in the park
+Those videos aren't good enough
+Tests aren't so easy for me (The tests ...)
+His money isn't enough
+The books aren't  expensive
+
+These things aren't so important
+Her boyfriend isn't there
+That book isn't short
+Their plan isn't so bad
+The man isn't rich
+It isn't in America. It's in China
+Our computer isn't powerful
+That money isn't enough
+
+The books aren't cheap
+My bag isn't in my room
+This informations isn't enough
+The exercises aren't difficult
+My result isn't so bad
+This thing isn't serious
+These problems aren't big
+Their problems aren't small
+
+The lesson isn't boring
+This knowledge isn't basic
+English isn't easy
+That channel isn't so popular
+My partner isn't afraid of difficulties
+The book isn't expensive
+This channel isn't so bad
+The test isn't easy
+
+His sister isn't pregnant
+Those people aren't right
+Her life isn't very difficult
+This product isn't new
+These exams aren't easy
+His live isn't easy
+Her way of live isn't healthy
+This problem isn't big
+
+This place isn't dangerous
+These things aren't popular now
+The car isn't new. It's old
+His girlfriend isn't here
+This method isn't good enough
+His flat isn't small
+All this money isn't enough
+His partners aren't reliable
+
+The woman isn't a manager
+This exercise isn't difficult / These exercises aren't difficult
+The exercise isn't difficult
+His friend isn't reliable enough
+This money isn't enough
+These lessons aren't useless. They're very useful
+Your lessons aren't boring at all
+Their result aren't brilliant
+
+Their ideas aren't so innovative
+His English isn't fluent
+Her boyfriend isn't a businessman
+These words aren't important
+This phrase isn't important
+
+[`26 lesson`](https://www.youtube.com/watch?v=RyLhQWxt-8E&index=54&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
