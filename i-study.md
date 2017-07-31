@@ -4138,3 +4138,44 @@ These words aren't important
 This phrase isn't important
 
 [`26 lesson`](https://www.youtube.com/watch?v=RyLhQWxt-8E&index=54&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Am i; Are we/you/they; Is he/she/it?
+
+Am I talented?
+Are we in the right place?
+Are you in the his office?
+Are they your colleagues?
+Is he your acquaintance?
+Is she a housewife?
+Is it expensive?
+
+Am I a good student?
+Am I wrong?
+Am I in the wrong place?
+Are we far from this place?
+Are we near this place?
+Are we in one group?
+Are you really happy?
+Are you together?
+Are you in one team?
+
+Are they good specialists?
+Are they experts in this area?
+Are they experienced?
+Is he happy?
+Is he a happy person?
+Is he married?
+Is she his wife?
+Is she afraid of it?
+Is she a native speaker?
+
+Is it a pleasant feeling?
+Is it effective?
+Is it an effective method?
+Is it a popular channel?
+Is it a strange thing?
+Is it a global problem?
+It is sunny - Is it sunny?
+It is windy - Is it windy?
+It is cold - Is it cold?
+
