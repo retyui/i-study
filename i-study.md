@@ -4178,4 +4178,146 @@ Is it a global problem?
 It is sunny - Is it sunny?
 It is windy - Is it windy?
 It is cold - Is it cold?
+Is it a cold day?
+Is it a worm day?
 
+Is he a businessman?
+Is he a successful businessman?
+Is he a very successful businessman?
+Is she an actress?
+Is she a talented actress?
+Is she a very talented actress?
+
+[`26 exercise`](https://www.youtube.com/watch?v=nDKiD45jS9E&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=55)
+
+It is effective
+It is interestingly
+It is obviously
+It is good
+It is bad
+It is clear
+It is right
+We learn English effectively
+It's an effective method
+
+Is he a successful businessman?
+Are they professional workers?
+Is it a cold day?
+Is he a strange person?
+Is he a popular singer?
+Is it a well-paid job?
+Is she a famous writer?
+Are you there?
+Are they right?
+
+Am I a good student?
+Is she a talented actress?
+Is he often angry?
+Are we in the right place?
+Are they only/just friends?
+Am I in the wrong place?
+Are you together?
+Are they your colleagues?
+Are they managers?
+
+Is It an interesting book
+Are you afraid  of difficulties?
+Is he busy at the moment?
+Is he a hard-working person?
+Is she pregnant?
+Is he wrong?
+Is it a rainy day?
+Is he a businessman?
+Is it windy?
+
+Is it a long story?
+Is it a new project?
+Is she a famous actress?
+Are we near this place?
+Is he a professional teacher?
+Is it in China or in America?
+Is she his wife?
+Is he happy?
+Is he a very successful businessman?
+
+Are they serious people?
+Is it a cheap thing?
+Are they strange people?
+Are you in this hotel?
+Is it rainy?
+Is it a popular channel?
+Are they healthy?
+Is he a talented student?
+Is it easy or difficult?
+
+Am i wrong?
+Is he your boss?
+Is it a powerful computer?
+Is it an expensive thing?
+Is she a housewife?
+Are you a designer?
+Is it cold?
+Is he strong?
+Is he married?
+
+Is he reliable enough?
+Is he a lazy boy?
+Are we in one group?
+Is she a vary talented actress?
+Is it a dangerous place?
+Is it sunny?
+Are they very good workers?
+Is he a talented actor?
+Are they wrong?
+Is it an innovative idea?
+
+Is he an experienced teacher?
+Are they good specialists?
+Is it a global problem?
+Is he your best friend?
+Is it expensive or cheap?
+Are they native speakers?
+Are you really happy?
+Is she a businesswoman?
+Is it a warm day?
+
+Is it a good plan?
+Is it cloudy?
+Is he your acquaintance?
+Is he right?
+Is he a strange thing?
+Is she an actress?
+Is it a funny video?
+Is it very important?
+Are they experts in this area?
+Are we far from  this place?
+
+Is she your acquaintance?
+Is she a successful businesswoman?
+Are you here?
+Is it effective?
+Is he a happy person?
+Is she afraid of it?
+Are they reliable friends?
+Am I talented?
+Are you in his office?
+Is it a very effective method?
+
+Is it windy?
+Is he really happy?
+Are they experienced?
+Is she a teacher?
+Is it interesting or boring?
+Is it expensive?
+Is it a sunny day?
+Are you in one team or not?
+
+Is she a native speaker?
+Is it a pleasant feeling?
+Is it an effective lesson?
+Is she your classmate?
+Are they rich?
+Is it bad or good?
+Is it a wonderful result?
+
+[`27 lesson`](https://www.youtube.com/watch?v=ZYbrRv83IMc&index=56&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
