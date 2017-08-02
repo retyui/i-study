@@ -4321,3 +4321,50 @@ Is it bad or good?
 Is it a wonderful result?
 
 [`27 lesson`](https://www.youtube.com/watch?v=ZYbrRv83IMc&index=56&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Am I; Are we/you/they; Is he/she/it
+
+Are these lessons really effective?
+Is his father rich?
+Is his mother a businesswoman?
+Are our friends there?
+Is this words new for you?
+Is this school good enough?
+
+Is this detail important?
+Is this hotel so expensive?
+Is your computer so powerful?
+Is this thing really necessary?
+Is his method different?
+Is this level basic?
+Is his level high enough?
+Are all these videos really useful?
+Is his girlfriend very emotional?
+
+Are your ideas similar?
+Are his ideas the same?
+Are these methods traditional?
+Are your parents at home?
+Is your father a businessman?
+Is your brother a freelancer?
+Is your mother a housewife?
+Is this money enough?
+Is our knowledge enough?
+Is the news sad?
+Is this information reliable?
+
+Are the boys busy at the moment?
+Are the girls with a teacher?
+Is the boy really so talented?
+Is the girl the best student?
+Is the computer expensive?
+Is the result good enough?
+Are the results satisfactory?
+Is the progress slow?
+
+Is the lesson very informative?
+Is the video so funny?
+Are the boys poor?
+Are the girls rich?
+
+[`27 exercise`](https://www.youtube.com/watch?v=CUDBELjzXuo&index=57&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
