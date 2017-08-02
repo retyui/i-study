@@ -4368,3 +4368,99 @@ Are the boys poor?
 Are the girls rich?
 
 [`27 exercise`](https://www.youtube.com/watch?v=CUDBELjzXuo&index=57&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+quite + прилагательное
+His salary is quite high
+
+прилагательное + enough
+His salary is high enough
+
+Enough!
+This money is enough
+It is enough. Thanks!
+
+It's your turn
+Are the lessons free?
+Is your brother in bad?
+Are your relatives in America?
+Is your sister in hospital?
+Is this money enough?
+Are His ideas the same?
+Is this thing really necessary?
+Is this thing really so important?
+Is his level high enough?
+
+Are these exercises  useful?
+Is the video really useful?
+Is the boy really so talented?
+Is that exercise difficult?
+Is the book boring?
+Are those exercises useless?
+Are your colleagues very professional?
+Is his girlfriend American?
+Are the girls rich?
+
+Is the news sad?
+Is his son very lazy?
+Are your ideas similar?
+Is this girl the best student?
+Are your parents at home?
+Is your cousin at the airport?
+Are the girls with a teacher?
+Is this information reliable?
+Is the compute expensive?
+
+Are the boys busy at the moment?
+Is this school good enough?
+Are these methods traditional?
+Is the lessons free?
+Is your brother a professional sportsman?
+Is the chair comfortable?
+Is the progress slow?
+Is the result good enough?
+Is your computer so powerful?
+Is his father rich?
+
+Is this hotel so expensive?
+Is their father a businessman?
+Is this exercise easy?
+Is his father a rich person/man?
+Is your classmate ill?
+Is your husband at work?
+Is his mother a businesswoman?
+Is this detail important?
+Is our knowledge enough?
+Is the ticket expensive?
+
+Is your brother a freelancer?
+Is this subject so important?
+Are these lessons really effective?
+Is her boyfriend Russian?
+Is his method different?
+Is this teacher really so experienced?
+Is their mother a housewife?
+Is the movie so funny?
+Is the lesson very informative?
+Is this word new for you?
+
+Are the results satisfactory?
+Is your brother in the bathroom?
+Is your wife at home?
+Is her daughter very hard-working?
+Are his lessons really effective?
+Is this level basic?
+Is this story long?
+Is our boss very busy now?
+Is your boss a difficult person?
+Is his father angry?
+
+Are these recommendations good?
+Are our friend there?
+I his girlfriend very emotional?
+Is their offer so interesting?
+Is your mother in the kitchen?
+Are the boys poor?
+Is your friend tired?
+Is this manager experienced enough?
+Are all these videos really useful?
+Yes/Of course / Certainly / Sire
