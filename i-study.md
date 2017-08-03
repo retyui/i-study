@@ -4464,3 +4464,57 @@ Is your friend tired?
 Is this manager experienced enough?
 Are all these videos really useful?
 Yes/Of course / Certainly / Sire
+
+[`28 lesson`](https://www.youtube.com/watch?v=zn9WYOwqsnI&index=58&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Present Simple to be
+I'm; We/You/They're; He/She/It's
+
+I'm a sales manager
+We're in one group
+You're in one team
+They're independent
+
+He's an outstanding person
+She's our special guest
+It's very unusual
+
+This thing is strange
+The result is good enough
+The results are brilliant
+The news is shocking
+Knowledge is power
+This money is enough
+
+I'm not; We/You/They aren't; He/She/It isn't
+
+I'm not surprised at all
+We aren't tired of these things
+You aren't happy
+They aren't professional workers
+He isn't available at the moment
+She isn't afraid of difficulties
+
+The boys aren't at school
+The offer isn't interesting enough (sentence)
+Our results aren't good enough
+This idea isn't new
+Money isn't everything
+
+Am I;Are we/you/they; Is he/she/it ?
+
+Am I the best student?
+Are we in the right place?
+Are you angry?
+Are they surprised?
+
+Is he tall?
+Is he an experienced lawyer?
+Is it his idea?
+
+Is this singer very popular?
+Are your colleagues very friendly?
+Are these ideas the same?
+Is this hotel good enough?
+Are these lessons really so effective?
+Of course/Sure/Certainly;
