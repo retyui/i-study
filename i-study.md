@@ -4518,3 +4518,119 @@ Are these ideas the same?
 Is this hotel good enough?
 Are these lessons really so effective?
 Of course/Sure/Certainly;
+
+[`28.1 exercise`](https://www.youtube.com/watch?v=Vh7832p19vQ&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=59)
+
+He's my boos
+They're in the United States
+We're busy now
+This things isn't popular now
+Is it a good plan?
+My father is there
+They're in (Great Britain / the United Kingdom/ the UK)
+He's a professional teacher
+
+It's a good lesson
+My boos is very busy
+It's cloudy
+My friend is 25 (years old)
+My relatives are in America
+Are you here?
+The lesson is boring
+Are they serious people?
+It isn't an expensive thing
+
+It isn't windy
+She's a housewife
+Are they strange people?
+He isn't an angry person
+My progress is real
+I want to speak English naturally
+She's beautiful
+You're a good teacher
+He's a good person
+
+It's in my flat
+Are you together?
+Her ideas are interesting?
+He's a director
+The books aren't cheap
+Are you there?
+Is your mother a housewife?
+Is it a sunny day?
+Is this thing really so important
+
+Are you in his office?
+It isn't in America. It's in China
+It's a bad idea
+It's an interesting offer
+Is he busy at the moment?
+He's the best teacher in the world
+English is easy
+He's a designer
+It's an important detail
+
+That book isn't short
+They're from America
+I'm a manager
+Their results are brilliant
+She's tired
+Is your father a businessman
+It's in our country
+The offer is so interesting
+Is he wrong?
+
+They're talented students
+This idea is new
+Is he a talented student?
+This information is enough
+Your lessons is very informative
+Are you a designer?
+It's an excellent result
+My result isn't so bad
+We aren't a students
+
+It's so interesting
+You're kind
+Is the chair comfortable?
+Is all this money enough?
+It's on the right
+These words aren't important
+My computer is very powerful
+Is it rainy?
+The book isn't expensive
+It's a good exercise
+Really, it's a good training
+
+Is he a popular singer?
+It isn't an interesting book
+This idea isn't new
+These exercises are so useful
+Their problems aren't small
+Is she an actress?
+This building is very high
+It's important
+I think it's a good result
+They're students
+
+Is it an effective lesson?
+The key is on the table
+Is your brother in hospital?
+I'm not hungry
+The tickets are cheap
+I'm not American. I'm Russian
+This exercise isn't difficult
+These  things aren't so important
+
+It's so difficult
+They're in Russia
+Is your classmate ill?
+Is it in this area?
+The book isn't so cheap
+Is it a strange thing?
+The hotel is expensive
+Are they wrong?
+My boss isn't at work
+We  aren't friends and we aren't enemies
+
+[`28.2 exercise`](https://www.youtube.com/watch?v=DKYWNDa3Pn8&index=60&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
