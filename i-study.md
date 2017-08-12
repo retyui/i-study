@@ -4634,3 +4634,119 @@ My boss isn't at work
 We  aren't friends and we aren't enemies
 
 [`28.2 exercise`](https://www.youtube.com/watch?v=DKYWNDa3Pn8&index=60&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+A big thank you!
+Thank a million!
+
+It isn't bad. It's good
+Is his mother a businesswoman?
+His girlfriend isn't here
+The chair is comfortable
+They aren't expensive
+His friend isn't reliable enough
+My friend is quite reliable
+
+They aren't in the park. They're in another place
+Is his method different?
+That house is old
+Those videos aren't good enough
+Is she a native speaker?
+They aren't stupid / silly / foolish
+The results aren't good enough
+It's obvious
+
+The boy is talented
+Is this information reliable?
+It isn't a new car. It's an old car
+This person is very good
+Is he a professional teacher?
+This money isn't enough
+Are these lessons really effective?
+The problem is small
+
+Are these recommendations so good?
+His idea is good
+It's boring
+Are they right?
+It isn't boring
+The offer isn't interesting enough
+It's on the table
+Is she a businesswoman?
+Are they experts in this area?
+
+The woman isn't a manager
+It's a good idea
+Is she a famous writer?
+These videos aren't so funny
+They're good parents
+Is he very successful?
+Is it a cold day?
+Are they rich?
+Is he a rich person?
+
+He isn't our boss
+They aren't professional workers
+It isn't a cheap thing
+Is she your classmate
+These ideas aren't new
+Is he your acquaintance?
+He's my old friend
+Are they a reliable friends
+It's so easy
+
+We aren't tired of these things
+Is she afraid of it
+Is it an interesting book?
+It's easy
+It's in this city
+The girl is talented
+Those people aren't right
+You're talented
+I'm Russian
+
+You're a good teacher
+He's a lazy person
+We're hard-working
+Is his level high enough?
+Is he a strange person?
+This knowledge isn't basic
+Are you really happy?
+My bag isn't in my room?
+He's my boyfriend
+
+Is he happy?
+It isn't cold. It's warm
+I'm not tired
+Are the girls rich?
+Is the news sad?
+Is it pleasant feeling?
+The problem isn't big
+Is the result good enough?
+Everyone knows it
+All people know it
+
+They're clever / smart
+You're the best teacher
+It isn't strange
+Is she a talented actress?
+His progress isn't big
+The chair isn't so comfortable
+Our computer isn't powerful
+His lifestyle isn't healthy
+Are our friends there?
+
+Is he a talented actor?
+I'm in the park
+She isn't my girlfriend
+Is she a housewife?
+He's Russian
+These things aren't good enough
+It's a long story
+She's Russian
+He's American but he lives in Russia
+
+Is it a cheap thing
+Are your relatives in America?
+It isn't a boring lesson
+Your lessons aren't boring at all
+They aren't rich. They're poor
