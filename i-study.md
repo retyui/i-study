@@ -4750,3 +4750,61 @@ Are your relatives in America?
 It isn't a boring lesson
 Your lessons aren't boring at all
 They aren't rich. They're poor
+
+[`29 lessons`](https://www.youtube.com/watch?v=CkdyaCbf3DI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=61)
+
++ I'm right
+- I'm not right
+? Am I right?
+
++ We're sure (certain)
+- We aren't sure
+? Are we sure?
+
++ You're near the park
+- You aren't near the park
+? Are you near the park?
+
+They're in a save place
+They aren't in a save place
+Are they in a save place
+
+He's an expert in this area
+He isn't an expert in this area
+Is he an expert in this area
+
+She's a native speaker
+She isn't a native speaker
+Is she a native speaker?
+
+It's the best decision
+It isn't the best decision
+Is it the best decision
+
+The rule is very important
+The rule isn't very important
+Is the rule very important?
+
+The phrases are very common (popular)
+The phrases aren't very common
+Are the phrases very common
+
+His English is fluent(свободный)
+His English isn't fluent
+Is his English fluent
+
+The news is strange
+The news ins's strange
+Is the news strange?
+
+Our knowledge is enough
+Our knowledge isn't enough
+Is our knowledge enough?
+
+His sister is 17(seventeen)
+His sister isn't 17
+Is his sister 17?
+
+His friend is married
+His friend isn't married
+Is his friend married?
