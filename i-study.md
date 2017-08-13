@@ -4794,7 +4794,7 @@ His English isn't fluent
 Is his English fluent
 
 The news is strange
-The news ins's strange
+The news isn't strange
 Is the news strange?
 
 Our knowledge is enough
@@ -4808,3 +4808,130 @@ Is his sister 17?
 His friend is married
 His friend isn't married
 Is his friend married?
+
+[`29.1 exercise`](https://www.youtube.com/watch?v=4viu3yk2zDc&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=62)
+
+Thank you; my result (per cent)
+It doesn't satisfy you 
+and It isn't acceptable for me (my progress)
+How does he look like?
+What's his appearance?
+
+method - methods
+Kate's car is very comfortable
+They really help me
+They're really helpful
+to make my dream come true
+
+This idea isn't new. It's an old idea
+My mother is a doctor
+Is it very important?
+Your lessons are really good
+Her way of live isn't health
+He's my father
+This information is useless
+It isn't difficult(hard)
+
+The book is in the kitchen
+The book is boring
+These things aren't popular now
+It's my new car
+Is your computer powerful?
+Are they your colleagues?
+I'm in my room
+Am I a good student?
+My friends aren't in Moscow
+
+Is the video really useful?
+My parents aren't in the park
+Is it a cheep thing?
+My mother is in the bathroom
+Are they a managers?
+Is it a new project?
+It isn't a bad idea?
+My best friend is a businessman
+
+The history isn't long
+Is this girl the best student?
+That money isn't enough
+Are your ideas similar?
+That exercise is too easy
+Is this word new for you?
+Is her boyfriend Russian?
+Is it windy?
+(It snows/It rains; It's snowy/It's rainy)
+This house is new
+
+This place isn't dangerous
+Is this school good enough?
+Are all these videos really useful?
+Is it easy or difficult?
+His live isn't easy
+Is he reliable enough?
+His son is lazy?
+He's American?
+Those exercises are useless
+
+I'm not form Canada. I'm from the United States
+Are they very good workers?
+It's on the chair?
+Is it a powerful computer?
+My partner isn't afraid of difficulties
+Is your wife at home?
+It's a small mistake
+Is the ticket expensive?
+Is his father rich?
+
+She's his daughter
+Is it interesting or boring?
+We are inside
+The book is red
+Is she a teacher?
+This room is small
+Is she a famous actress or not?
+She's 25
+Is the video so fanny?
+
+The girl is beautiful
+You aren't happy
+These results are wonderful / brilliant / excellent / amazing / surprising / unexpected!
+Are his ideas the same?
+Is it sunny?
+He isn't at school
+Is he a hard-working person?
+It isn't a boring movie
+
+Is your husband at work?
+It's a good idea
+He isn't a businessman. He's a manager
+Are they experienced?
+We're in the park now
+Is he a businessman or an employee?
+Are all these houses new?
+Is our boos very busy now?
+
+I'm tired
+It's a difficult thing
+You aren't right / You're wrong
+These results are terrible
+I'm not surprised at all
+Their plan isn't so bad
+Her daughter is very hard-working
+Is he a happy person?
+It isn't far
+
+Is her son lazy?
+Is it an innovative idea?
+Our results aren't good enough
+The result isn't good enough
+The boys aren't at school
+They aren't partners. They are only friends
+Is this lesson very informative?
+
+We aren't classmates
+This idea is quite old
+Money isn't everything
+She's in America
+His flat is quite small
+He isn't rich
+Is this level basic?
