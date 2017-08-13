@@ -4812,7 +4812,7 @@ Is his friend married?
 [`29.1 exercise`](https://www.youtube.com/watch?v=4viu3yk2zDc&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=62)
 
 Thank you; my result (per cent)
-It doesn't satisfy you 
+It doesn't satisfy you
 and It isn't acceptable for me (my progress)
 How does he look like?
 What's his appearance?
@@ -5048,3 +5048,51 @@ Is it wall-paid job?
 My parents are angry
 Am I right or wrong? / Am i right or not?
 Is this sentence interesting?
+
+[`30 lesson`](https://www.youtube.com/watch?v=2ZhWNQigG64&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=64)
+
+Present Simple special question
+Вопросительное слово + am/is/are ... ?
+
+How are you?
+Why is she still there?
+When are they in the office?
+Where is the nearest supermarket?
+What is it?
+Who is he?
+
+Вопросительное конструкция + am/is/are ... ?
+
+How much is it?
+How much does it cost?
+How far is it?
+Where are you from? I'm from Russia
+Where is he from? He's from England
+
+How is live?
+How is this project?
+How are his parents?
+
+Why are we here?
+Why is she so sure?
+Why is it so important?
+
+When is he at home?
+When are they together?
+When are you free?
+
+Where is the nearest hotel?
+Where is this place?
+Where are my keys?
+
+What is in this box?
+What is in his head?
+What is there?
+
+Who is right
+Who is present?
+Who is absent?
+*Who knows it?
+*Who likes it?
+
+[`30 exercise`](https://www.youtube.com/watch?v=_Wgo9QsktwM&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=65)
