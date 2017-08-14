@@ -5096,3 +5096,75 @@ Who is absent?
 *Who likes it?
 
 [`30 exercise`](https://www.youtube.com/watch?v=_Wgo9QsktwM&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=65)
+
+Where is this place?
+How is it?
+Why is she afraid?
+How far is it?
+Where is your car?
+Who is present?
+What is in the box?
+Who is at work?
+How are his lessons?
+
+Who is in the garden?
+How are his patients?
+Where are you from? I'm from Russia
+Who are they?
+Who is outside?
+Who is right?
+When are they in the office?
+Who is inside?
+
+How much is it in that shop?
+Who is there?
+When is he at home?
+When are they together?
+What is in this box?
+Where is the nearest hotel?
+Who is absent today?
+How much is it in this shop?
+
+What is it?
+What is there?
+Why is it so important?
+Why is it so easy?
+Why is she still there?
+Where is he from? He's from England?
+How is the lesson?
+Where is your girlfriend?
+How are you?
+
+Where are your parents now?
+When are they busy?
+Who is he?
+Where is the nearest bank?
+What is there?
+Who is right?
+Who is present today?
+Where is the nearest supermarket?
+Who is at home?
+
+How much is it?
+Where are my keys?
+Who is wrong?
+Why is it so difficult?
+What is in you bag?
+How is this project?
+How are this videos?
+Why are we here?
+Why are they still there?
+Who is here?
+
+Where is this place?
+What is in his had?
+Where is his wife?
+Why are you still there?
+When are they free?
+Why is it free?
+Why are the lessons free?
+Why is it so?
+
+Why are you so sure that she's right?
+Where is my book?
+Where is my wallet?
