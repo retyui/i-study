@@ -5172,7 +5172,7 @@ Where is my wallet?
 [`31 lesson`](https://www.youtube.com/watch?v=vgN2tMpG9cE&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=66)
 
 Special Question
-Question word + am/is/are 
+Question word + am/is/are
 What/Where/How ... + am/is/are
 
 Why is this offer so attractive?
@@ -5235,3 +5235,99 @@ What YouTube channels are popular nowadays?
 
 What time is it?
 What's the time?
+
+[`31 exercise`](https://www.youtube.com/watch?v=2n2p9dC1wxE&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=67)
+
+What is this level?
+How expensive is it?
+When are you in our area?
+What magazines are popular now?
+Which book is more interesting?
+What is confidence when you speak English?
+Why are you so surprised?
+How long is the lesson?
+
+How good is this teacher?
+Who is your fitness trainer?
+Where is your instructor?
+What is free?
+How long is one English lesson?
+Who are your friends?
+Where are my mistakes?
+How interesting is this movie?
+
+How is your cousin?
+Why are these things necessary?
+What is success?
+When are you happy?
+How good is you memory?
+Where is this teacher from?
+What are your thoughts?
+When are you in this building?
+What is love?
+
+What's the meaning of this word?
+Why s it impossible?
+What's the meaning of this phrase?
+Who is your friend?
+Which website is better?
+What is happiness?
+How is my new sweater?
+Where are these clothes?
+How are your relatives?
+
+How often are they together?
+Why is your teacher so angry?
+Why are you so angry?
+Who is this person?
+Why are they shocked?
+How much is this toy?
+How popular is it?
+Why is the suit so expensive?
+What books are interesting for you?
+
+Where is his friend from?
+How good are these lessons?
+How is her new dress?
+How cheap is it?
+What YouTube channels are popular nowadays?
+Why is this level basic?
+Why is this offer so attractive?
+Where is justice in the world?
+
+What is in his bag?
+When are you tired?
+How often is she late?
+Why are you so tired?
+What are my mistakes?
+How is your brother in America?
+What are his ideas?
+Why are these topics boring?
+What time is it? / What's the time?
+
+What are your ideas?
+How much are the tickets? / How much do the tickets cost?
+Who are all these people?
+Why is his offer so attractive?
+When is she angry?
+How is my new suit?
+When are you tired?
+How much is this computer?
+Who is this guest?
+
+How long is the video?
+Why are these clothes so cheap?
+Where is this file?
+Where are these documents?
+Why is this phrase so funny?
+What newspapers interesting for you?
+How is this dish?
+How are these dishes?
+
+How long is the way?
+Why is this detail so important?
+Why is all this information so important?
+Where is our English teacher?
+Who is this woman?
+What is professionalism?
+We see it here
