@@ -5168,3 +5168,70 @@ Why is it so?
 Why are you so sure that she's right?
 Where is my book?
 Where is my wallet?
+
+[`31 lesson`](https://www.youtube.com/watch?v=vgN2tMpG9cE&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=66)
+
+Special Question
+Question word + am/is/are 
+What/Where/How ... + am/is/are
+
+Why is this offer so attractive?
+How is your cousin?
+Where are my mistakes?
+What is love?
+What is his idea?
+How is this man?
+(I'm tired)
+When are you tired?
+
+Why is this detail so important?
+Why are these things necessary?
+Why is this level basic?
+Why are you so surprised?
+Why are your friends shocked?
+Why is your brother so tired?
+Why are your parents angry?
+Why are these topics boring?
+
+How is this dish?
+How is her new dress?
+How is my new suit?
+Where are these clothes?
+Where is our English teacher?
+Where is justice in the world?
+Where is his file?
+
+What is confidence?
+What is professionalism?
+What is in his bad?
+
+Who are all these people?
+Who is this guest?
+Who is free?
+
+When is your boos in this building?
+When is your mother angry?
+When is your father tired?
+
+How much is it? (How much does is cost?)
+How much is this computer?
+How much are the tickets?
+How often 1)is she late? (be late)
+2) dose she often come late?
+How often is your boss late?
+How often are they together?
+How long is the way?
+How long is one English lessons?
+How cheap/expensive/popular is it?
+
+How long is the lesson?
+How long does the lesson last?
+
+Where are you from?
+Where is he from?
+What books are interesting for you?
+Which book is more interesting?
+What YouTube channels are popular nowadays?
+
+What time is it?
+What's the time?
