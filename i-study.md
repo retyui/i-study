@@ -5331,3 +5331,74 @@ Where is our English teacher?
 Who is this woman?
 What is professionalism?
 We see it here
+
+[`32 lesson`](https://www.youtube.com/watch?v=6D6RmjSB3Yo&index=68&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+Present Simple (Statement)
+1.1 When we have a verb
+I/We/You/They + verb
+He/She/It + verb + s
+I know the truth
+We often discuss it
+You expect this result
+They wants more knowledge
+She thinks the same 
+He disagrees with this statement
+It looks surprising
+
+1.2 When we don't have a verb
+I'm; We/You/They're; He/She/It's
+I'm in the garden
+We're very different
+You're in a difficult situation
+They're divorced
+He's a strange person
+She's the most beautiful girl in the world
+It's a bad idea
+
+2.1 When we have a verb (negative)
+I/We/You/They + don't + verb
+He/She/It + doesn't + verb
+
+I don't know the answer
+We don't think so
+You don't realize it
+They don't control the situation
+He doesn't do it
+She doesn't travel every year
+This thing doesn't seem strange
+
+2.2 When we don't have a verb (negative)
+I'm not
+We/You/They aren't
+He/She/It isn't
+
+I'm not at home
+We aren't satisfied with this result
+They aren't professional enough
+He isn't afraid of it
+It isn't interesting at all
+
+3.1 When we have a verb (Question)
+
+Do I/we/you/they + verb
+Does he/she/it + verb
+
+Do you know how it works?
+Do they fully support you?
+Does she have a similar opinion?
+Does he know her address?
+Do I speak English fluently?
+Do we show excellent results?
+It this problem really difficult?
+
+3.2 When we don't have a verb (Question)
+Am I? Are we/you/they? Is he/she/it?
+
+Are these lessons really good?
+Is your friend married?
+Does he earn more than 200(two hundred) dollars/pounds a mouth?
+
+What's your weight?
+How much is 1 hour?
+How long does the course last?
+How long is the course?
