@@ -5333,10 +5333,14 @@ What is professionalism?
 We see it here
 
 [`32 lesson`](https://www.youtube.com/watch?v=6D6RmjSB3Yo&index=68&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
 Present Simple (Statement)
+
 1.1 When we have a verb
+
 I/We/You/They + verb
 He/She/It + verb + s
+
 I know the truth
 We often discuss it
 You expect this result
@@ -5402,3 +5406,120 @@ What's your weight?
 How much is 1 hour?
 How long does the course last?
 How long is the course?
+
+[`32.1 exercise`](https://www.youtube.com/watch?v=9QU1HMbN_fc&index=69&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Do your parents know it?
+Is this thing really useful?
+The results aren't good enough
+Does that thing interest them?
+Your lessons aren't boring at all
+The book isn't so cheap
+Is the ticket expensive?
+All these things don't interest them?
+
+When do these exams start?
+Is it easy or difficult?
+Do you need it right now?
+Is your brother in hospital?
+They're in the United States
+We're very different
+Is it cloudy?
+Do her parents always take her?
+
+These results are terrible
+Does this lesson help you?
+Does that thing really interest you?
+He's my old friend
+Does she understand us?
+Is she a native speaker?
+Who is here?
+Who are all these people?
+
+When does thin lesson usually start?
+Is the result good enough?
+Do you often go there?
+Why do they refuse to do it?
+Is your brother a professional sportsman?
+Why do you support them?
+Do these lessons really help?
+Am I right or not?
+
+Why are they still there?
+What does your brother do at work?
+Why are you so surprised?
+Why is your father so angry today?
+This thing isn't popular now
+Why does your best friend hate it?
+You expect this result
+I hope all people know that money isn't everything
+
+Is he your best friend?
+Where does she play this game?
+Her mother usually stays at home
+How well does your sister swim?
+Does it really work?
+Is all this money enough?
+Why is this detail so important?
+Does it interest you? Not at all
+
+He's my classmate
+Is your brother in bed?
+This idea is quite old
+All his lessons are free and I'm so happy
+It's boring
+How are these dishes?
+Are we far from this place?
+What does it mean?
+Is the news sad?
+
+His father is rich
+The book isn't expensive
+How is my new sweater?
+Are they right?
+Is this girl the best student?
+Where is our English teacher?
+The problem is small
+His partners aren't reliable
+
+When does he come home?
+Why do you learn English?
+You're in a difficult situation
+Their results are brilliant
+Is it in this area?
+Are they your colleagues?
+Does your friend have an interesting offer?
+I think differently / another way
+
+Where is he from? He's from England
+Is she a businesswoman?
+They're our friends
+How are your relatives?
+Why are these clothes so cheap?
+You're kind
+They aren't stupid / sill / foolish
+(It's a foolish mistake. You need to start a new playlist)
+Is he a professional teacher?
+
+Do you often see her?
+I'm tired
+Is the video so fanny
+Does she like this subject?
+Do his parents believe in God?
+What do they sell there?
+Do we learn English effectively?
+Your lessons are really good
+
+Do you work or study?
+Does she live there?
+This information is enough
+My mother is in the bathroom
+Do these things interest you?
+Is it a dangerous place?
+I'm Russian
+How long is the way?
+
+His son is lazy
+They're in Great Britain / UK / United Kingdom
+Does this result seem very good?
+
