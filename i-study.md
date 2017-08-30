@@ -5523,3 +5523,116 @@ His son is lazy
 They're in Great Britain / UK / United Kingdom
 Does this result seem very good?
 
+[`32.2 exercise`](https://www.youtube.com/watch?v=epVdojc6FuU&index=70&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+What do you think about it?
+How often are they together?
+Does he do business?
+They're from America
+Is our knowledge enough?
+You're a good teacher
+It's a good idea
+
+It isn't cold. It's warm
+His parents tell him everything
+It isn't a boring lesson
+Is this detail really so important?
+How much is it in that shop? How much does it cost in that shop?
+Why does your friend think so?
+Does that thing seem interesting?
+They aren't expensive
+
+Are these lessons really good?
+The boys isn't at school
+Does his house look expensive?
+Does your classmate run very fast?
+Do these boys remember it very well?
+Why are these things necessary?
+Do you usually come early?
+Is she a very talented actress?
+
+How are his lessons?
+He's my father
+Are all these houses new?
+Do they fully support you?
+How good are these lessons?
+These results seem good
+The woman isn't a manager
+This phrase isn't important
+
+Where is this place?
+Does he play the guitar?
+My sister is in the bed
+Does it really help you?
+When does it usually happen?
+Do those things interest her?
+Is this thing really necessary?
+How does she say it?
+
+Do they want to try to do it?
+He's my boss
+It's an interesting offer
+Where does your father work?
+My computer is new
+Are they very good workers?
+Why is it so?
+My boss is very busy
+The offer isn't interesting at all
+
+He isn't at school
+Is he wrong?
+Why does it seem strange?
+Why is your teacher so angry?
+Does she need to rent a flat(an apartment)?
+Their plan isn't so bad
+I'm not tired
+It's a big mistake
+Does she feel good?
+
+Does this story seem short?
+Do you live together?
+Are we near this place?
+Are you here?
+Do you live in Russia?
+His lifestyle isn't healthy(style of live)
+My best friend needs support now
+Why is it so easy?
+
+Is the manager experienced enough?
+It's good
+This place isn't dangerous
+How interesting is this movie?
+How does it seem to you?
+Who is in the garden?
+What do you see?
+Is it a sunny day?
+Do you speak English?
+
+Do you get 500(five hundred) dollars a month?
+Is this sentence difficult?
+Is it sunny?
+Her mother doesn't work there. She works in another place
+He's a professional teacher
+How do they get this money?
+They aren't rich
+They're poor
+Where does your brother study?
+
+Is he a happy person?
+These result don't seem very good
+Where is the nearest supermarket?
+The story is so long
+Is your computer powerful?
+Do he read newspapers?
+How much is this toy? How mush does this toy cost?
+
+Is this word new for you?
+Is it free or not?
+Who is this woman?
+The news isn't surprising at all?
+Does she support this idea?
+It's easy
+Does their rest include it?
+Do his students feel progress?
+Do you do it professionally?
+Is he very successful?
