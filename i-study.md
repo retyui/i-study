@@ -5636,3 +5636,50 @@ Does their rest include it?
 Do his students feel progress?
 Do you do it professionally?
 Is he very successful?
+
+[`33 lesson`](https://www.youtube.com/watch?v=ULoVCdLbOBM&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=71)
+
+I want to tell you this news
+I want to tell to you about this problem right now
+
+How well do you (know/speak) English/ work with this playlist?
+I know English well
+How good is your knowledge?
+My knowledge is good per cent
+I don't have / I haven't got an article
+
++It's a difficult lesson
+-It isn't a difficult lesson
+?Is it a difficult lesson?
+
++ The lesson is for strong student(weak)
+- The lesson isn't for strong student
+? It the lesson for strong student
+
++It's his weak point
+It isn't his weak point
+Is is his weak point
+
+It depends on him
+It doesn't depend on him
+Does it depend on him?
+
+They combine work and studies
+They don't ...
+Do they ...
+
+His speech full of mistakes
+His speech isn't
+Is his speech
+
+It's cold outside
+It isn't cold outside
+Is it cold outside?
+
+It's warm inside
+Is isn't warn inside
+Is it warn inside?
+
+This money is enough
+This money isn't enough
+Is this money enough?
