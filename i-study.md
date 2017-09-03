@@ -5801,3 +5801,52 @@ I want to know it.
 I need your answer
 
 [`34 lesson`](https://www.youtube.com/watch?v=ni3qSWwW5Do&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=73)
+
+I really like this playlist
+I like this playlist very much
+I like this playlist a lot
+
+General Question(Yes / No) / Special Question
+
+He (1) wants to know (4) English (5) perfectly (2) for many reasons (3)
+
+Does he want to know English perfectly for many reasons?
+1) Who wants to know English perfectly?
+2) How does he want to know English?
+3) Why does he want to know English perfectly?
+4) What does he want to do?
+5) What does he want to know?
+
+She goes to the gym (1) three times a week (2)
+
+Does she go to the gym three times a week?
+1) Where does she go three times a week?
+2) How often does she go to the gym?
+How many times a week does she go to the gym
+
+My friend wants to discuss it (2) tomorrow(1)
+1) When does my friend want to discuss it?
+2) What does my friend want to discuss?
+
+It's five o'clock
+
+What time is it?
+What's the time?
+
+Is it right or not?
+What time is it now?
+
+How are you?
+
+His knowledge is really (1) good
+1) How good is his knowledge?
+
+She (2) wants to try (3) get (4) this (1) job (5)
+Does she want to try to get this job?
+1) What job does she want to try to get?
+2) Who wants to try to get this job?
+3) What does she want to do?
+4) What does she want to try to do?
+5) What does she want to try to get?
+
+[`34 exercise`](https://www.youtube.com/watch?v=NK784PRRqp4&index=74&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
