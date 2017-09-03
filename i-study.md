@@ -5850,3 +5850,115 @@ Does she want to try to get this job?
 5) What does she want to try to get?
 
 [`34 exercise`](https://www.youtube.com/watch?v=NK784PRRqp4&index=74&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+This job isn't well-paid
+Is he your best friend?
+Is your cousin at the airport?
+Our results aren't good enough
+Are the results satisfactory?
+These students are so talented
+Is isn't free
+You need to pay
+His partners aren't reliable
+Are they only friends?
+
+It isn't an easy exam
+It isn't the best choice
+The tests in the book aren't so easy
+It's a short phrase
+I'm sure all these lessons are very useful
+Is he your boss?
+I know it's on the left
+It's his old car
+Is your brother a professional sportsman or not
+The manager is very strange
+
+We aren't at home. We're in the park
+Are we in the right place?
+Are you parent at home?
+It's too long
+It's an interesting thing
+Are they a professional workers?
+Is it cloudy?
+I'm not at home. I'm at work
+Is she your acquaintance?
+Are they good specialist?
+
+She's a manager
+Is it effective?
+It's difficult
+It's a big mistake
+My sister is in bed
+The story is to short
+All those houses are old
+Is his father angry?
+They're our friends
+He's a talented student
+
+He's my classmate
+Her boyfriend isn't there
+My cousin is tired
+It's so bad
+Their idea aren't innovative enough
+Are you afraid of difficulties?
+Is your brother in bed?
+I'm American but she's Russian
+Are those exercises difficult?
+Is it a safe place or not?
+
+Are your colleagues very professional
+Is his progress slow?
+He thinks his progress isn't good enough
+It's normal
+Is it rainy day?
+His English isn't fluent
+Are the boys busy at the moment?
+I'm very busy
+It's a very good lesson
+All his lessons are free
+
+Is it a warm day?
+Are we far from this place?
+It's good
+Is it an effective method or not?
+Is this thing really necessary?
+Is this detail really important?
+Are you in this place?
+The lesson is interesting
+She isn't American
+Is this book really interesting?
+
+Is she a talented actress?
+He isn't a rich person
+Is your friend tired?
+He's the best student
+My friend is ill
+This problem isn't big
+Is this manager experienced enough?
+Is our knowledge enough or not?
+Is he a successful businessman?
+He isn't a designer
+
+Are his lessons really effective?
+My computer is new
+Is it a popular channel?
+Are we near this place?
+Is this exercise easy?
+Is he often angry?
+The lesson is very difficult
+The test isn't easy
+This method is wonderful
+My English teacher is very professional
+
+Those problems aren't big
+This phrase isn't important
+Are the boys poor?
+Are those exercises useless?
+His father is rich
+She isn't at home / She's out
+It's on my bed 
+Is it a well-paid job?
+Is his girlfriend American?
+The pen is black
+
+[`35 lesson`](https://www.youtube.com/watch?v=FJU1lZCvV-g&index=75&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
