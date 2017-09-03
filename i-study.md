@@ -5683,3 +5683,121 @@ Is it warn inside?
 This money is enough
 This money isn't enough
 Is this money enough?
+
+[`33 exercise`](https://www.youtube.com/watch?v=ZeIopUOmp-U&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=72)
+
+Do you try to learn English?
+This house doesn't look expensive?
+This idea isn't new?
+Why is this offer so attractive?
+Does his friend want to continue?
+It's important
+Does her mother stay at home?
+When do your parents come home?
+
+I'm American
+Are your parent at home?
+Does he want to do it one more time?
+Is he often angry?
+His parents don't tell him everything
+My father is there
+When do the lessons finish
+Does she read magazines?
+
+Is it an innovative idea?
+Is this lesson very informative?
+This result seems good
+It isn't strange
+We're inside
+Is he busy at the moment
+We're hard-working
+Does he often travel?
+
+Are they experienced?
+Who is present?
+They're in Russia
+These things aren't so important
+What's your weight?
+Does it help him?
+Why is the suit so expensive?
+You don't realize it
+
+Who are your friends?
+The tests in this book aren't easy
+Is this level basic?
+What does she have?
+Where does your sun study?
+My mother is a doctor
+He's the best student
+When do the lessons start?
+
+How are his patients?
+Are relatives in America?
+This idea is new
+Are they strange people?
+How does he get money?
+Do your colleagues get 500(five hundred) dollars a mount
+Does it interest you?
+Is it a pleasant feeling?
+
+Are the boy poor?
+How long is the lesson?
+Does he like those lessons?
+It's too short
+What ideas do you have? What are your ideas?
+How are this videos?
+Where is your instructor?
+How do he sell this product
+Does she often fly to America
+
+Do you help your parents?
+Why are we here?
+It's on the left?
+Why does it happen so often?
+What magazines are popular now?
+Do your parent also think so?
+Why is she still there
+Who is right?
+
+That exercise is too easy
+What's the meaning of this word?
+My friend is 25 (years old)
+What is it?
+The book is boring
+Does he go to bed early?
+It's too difficult and I don't know what to do
+What does she need?
+Are your ideas similar?
+
+Are they come home early?
+When do you learn English?
+Where is the nearest supermarket?
+Do they know all the information?
+Do we show excellent result?
+Does she need to study more?
+Do they often say it?
+Why are you so sure that she's right?
+
+You're a good teacher
+This sentence seems very strange
+It's an old idea
+All your lessons are very useful
+He's a designer
+This thing interests me
+Is she a famous actress or not?
+Is he happy? I don't think so
+
+Where is this file?
+He runs fast
+How long is one English lesson?
+You aren't happy
+Is she your classmate?
+How do you do these exercises?
+Do you need his help?
+Why do your parents watch TV so late?
+Does it look wonderful?
+Do you think so?
+I want to know it.
+I need your answer
+
+[`34 lesson`](https://www.youtube.com/watch?v=ni3qSWwW5Do&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=73)
