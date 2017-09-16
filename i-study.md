@@ -5345,7 +5345,7 @@ I know the truth
 We often discuss it
 You expect this result
 They wants more knowledge
-She thinks the same 
+She thinks the same
 He disagrees with this statement
 It looks surprising
 
@@ -5956,7 +5956,7 @@ Are the boys poor?
 Are those exercises useless?
 His father is rich
 She isn't at home / She's out
-It's on my bed 
+It's on my bed
 Is it a well-paid job?
 Is his girlfriend American?
 The pen is black
@@ -6011,4 +6011,69 @@ We decided to meet tomorrow
 
 She asked me to wait for her
 I asked her to help me
+
+[`35 exercise`](https://www.youtube.com/watch?v=Rfee7uudvS4&index=76&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I feel/make/see progress
+I'm grateful to you for it/these free English lessons
+instead of -
+a mistake
+
+I worked hard
+She said it loudly
+I needed more time
+They wanted to find a better place
+We decided to meet tomorrow
+I remembered the meaning of this word
+We lived in America
+I played football yesterday
+
+I needed to find it urgently
+She needed your support
+I closed the door
+It happened to me
+She worked too little
+They played in one team
+It happened to his family
+She tried to find her mistakes
+
+I decided to become a businessman
+He decided to buy an expensive car
+He worked too much
+We played together
+A strange thing happen to my boss
+They lived happily
+They lived unhappily
+I decided to learn English here
+
+I decided to watch all the videos
+She opened her eyes
+We wanted better lessons
+I remembered the meaning of this phrase
+Your lesson helped me a lot
+I needed your help
+That experience helped me a lot
+I asked her to help me
+
+He went there by car
+I opened the door
+I went there by bus
+I tried to pass the test
+I needed to pass that exam
+I tried to help him
+He asked me to read it urgently
+I remembered everything
+
+It happened a long time ago
+We passed the test / They failed the test
+An interesting thing happened to our company
+I lived there a long time ago
+I remembered it at last
+She wanted to find a better job
+She helped me a lot
+They said it very quietly
+
+I remembered all the words
+She closed her eyes
+She asked me to wait for her
 
