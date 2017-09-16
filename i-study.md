@@ -5962,3 +5962,53 @@ Is his girlfriend American?
 The pen is black
 
 [`35 lesson`](https://www.youtube.com/watch?v=FJU1lZCvV-g&index=75&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+Past Simple
+вторая форма глагола
+Глаголы (verbs)
+1) Regular verbs
+If it's a regular verb, we add 'Ed'
+verb + Ed
+
+Present simple
+He works too much
+
+Past Simple
+He worked too much
+She wanted to find a better job
+
+2) Irregular verbs
+say - said - said
+He said it loudly (quiet - quietly)
+go - went - gone
+He went there by car
+
+I lived there a long time ago
+They lived happily
+They played in one team
+I played football yesterday
+I tried to help him
+I tried to pass the exam
+I needed more time
+I needed to find it urgently
+
+She helped me a lot
+That experience helped me a lot
+
+It happened to me / us / him / her / them
+A strange thing happened to my boss
+I remembered it at last
+I remembered the meaning of this word
+
+She closed her eyes
+I closed the door
+
+I opened the door
+She opened her eyes
+
+I decided to learn English here
+We decided to meet tomorrow
+
+She asked me to wait for her
+I asked her to help me
+
