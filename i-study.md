@@ -6077,3 +6077,62 @@ I remembered all the words
 She closed her eyes
 She asked me to wait for her
 
+[`36 exercise`](https://www.youtube.com/watch?v=qmH1aqytgeA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=77)
+
+Past Simple
+
+say - said - said
+He said it very loudly
+She said it very quietly
+I said it again and again
+
+go - went - gone
+I went to school
+I went to the park
+They went there
+
+know - knew - known
+We knew it very well
+We knew it perfectly
+I knew how to say it
+I knew the answer
+I knew the right / correct answer
+
+get - got - got
+I got your message
+We got all the necessary information
+I got up very early
+
+have - had - had
+He had everything
+He had a strange offer
+We had a good time
+We had a great time together
+
+understand - understood - understood
+I understood you very well
+I understood you without any problems at all
+I understood everything
+
+read - read - read
+I read a book in English
+I read your message
+I read a very interesting article
+I read that text
+
+write - wrote - written
+I wrote a message
+I wrote a letter
+I wrote a very long massage
+
+do - did - done
+I did it
+I did everything
+He did a very good thing
+I did my homework
+She did housework
+
+make - made - made
+I made a mistake
+He made some / several mistakes
+They made a terrible mistake
