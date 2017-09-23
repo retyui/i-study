@@ -6196,3 +6196,69 @@ I went to that place
 I knew what to say
 I wrote a letter
 I did everything
+
+[`37 lesson`](https://www.youtube.com/watch?v=J64WhMz4vGI&index=79&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+tell - told - told
+He told me this story
+She told me how to do it
+He told me to call her
+They told me everything
+
+think - thought - thought
+I thought about this problem
+We thought about the future of this company
+I thought so
+
+go/come to  !but! => (go/come home)
+come - came - come
+He came to the party
+They came to the meeting
+I came home
+She came back
+
+see - saw - seen
+I saw progress
+We saw her near that place
+I saw my mistakes at last
+
+(the first form / the second from / the third form(Past Participle))
+
+give - gave - given
+He gave me this information
+They gave me this file
+
+We need the second form to form Past Simple (It's OK)
+take - took - taken
+take an offer
+I took their offer
+We took him/her/them with us
+They tool her with them
+
+find - found - found
+I found a good job
+She found a wall-paid job
+I found my keys on the floor
+
+such a/an + adjective + noun (1)
+so + adjective
+
+become - became - become
+She became very successful
+He became a very successful businessman
+She became so popular
+He became such a popular singer
+
+feel - felt - felt
+I felt good
+I felt bad
+I felt better
+I felt muck better
+I felt (that) we had a big problem
+I felt I had some mistakes
+
+put - put - put
+I put it on the table
+I put it on the desk
+I put my bag on the floor
+
