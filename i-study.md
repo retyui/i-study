@@ -6136,3 +6136,63 @@ make - made - made
 I made a mistake
 He made some / several mistakes
 They made a terrible mistake
+
+[`36 exercise`](https://www.youtube.com/watch?v=xSVMilmWUBA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=78)
+
+I wrote a very long message
+I knew you without any problems at all
+I read a very interesting article
+I got up very early
+I knew how to translate that text
+He had everything
+We got all the necessary information
+I knew the correct answer
+
+They got all the money
+I went there
+I read that text
+I understood you very well
+We understood each other
+I understood everything
+I read a book in English
+He had a stranger offer
+
+I read your message
+They did it again and again
+I went to work yesterday
+I knew too little to pass that exam
+I got your massage
+We knew it very well
+I got your letter
+He said it one more time
+She said it very quietly
+
+I made several mistakes
+I understood him immediately
+She read that document
+I did what you wanted
+I did my homework
+He did a stranger thing
+I went to school
+I knew the answer
+She made a terrible mistake
+
+I said it again and again
+We knew it perfectly
+She did housework
+I went to the park
+He said it very loudly
+I knew very little
+He had a big problem
+We had a great time together
+I wrote a message
+
+We had a good time
+I knew how to say it
+He made too many mistakes
+He got up too late
+She said everything
+I went to that place
+I knew what to say
+I wrote a letter
+I did everything
