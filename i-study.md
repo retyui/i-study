@@ -6077,7 +6077,7 @@ I remembered all the words
 She closed her eyes
 She asked me to wait for her
 
-[`36 exercise`](https://www.youtube.com/watch?v=qmH1aqytgeA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=77)
+[`36 lesson`](https://www.youtube.com/watch?v=qmH1aqytgeA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=77)
 
 Past Simple
 
@@ -6262,3 +6262,73 @@ I put it on the table
 I put it on the desk
 I put my bag on the floor
 
+[`37 exercise`](https://www.youtube.com/watch?v=eOkn4xEFUhA&index=80&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+I saw progress
+They gave me this file
+We felt that we had such a big problem
+We took him with us
+I saw my mistakes at last
+We thought about the future of our company
+They gave us those materials
+
+I took her with me
+I gave him 200 (two hundred)/ 2000 (two thousand) / 2 000 000 (two million) dollars
+I put it near my computer
+They came to the meeting
+I felt bad
+She became vary successful
+He became an English teacher
+I felt I had only correct answers
+He saw her in the park
+
+He told me to call her
+I thought so
+I found my wallet
+She found a well-paid job
+I found my keys on the floor
+We felt we had a big problems
+I thought about this problem
+She found her passport
+
+I told her only some things
+It became a wall-know fact
+He told me this story
+I felt better
+I put my bag on the floor
+She came back
+He became a successful (double) businessman
+I felt I knew everything
+
+I felt I had some mistakes
+We saw his excellent results
+He gave me this information
+I found a good job
+I took their offer (I want to know educated native speakers)
+I felt we had a big problem
+I felt real progress
+I put it on the table
+
+She felt progress immediately
+I felt much better
+He became such a popular singer
+She told me how to do it
+She became a very successful businesswoman
+They told me everything
+He told me how to learn English fast
+We thought so, too
+
+She told me to call him
+I put it on the desk
+I thought about our future
+I felt good
+He came to us
+She became so popular
+They took her with them
+He came to the party
+
+We saw her near that place
+I came home
+We also thought so
+She told me her secret
+He came to the party
