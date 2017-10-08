@@ -9,3 +9,4 @@ It my👶 help tool to learn English:us:
 + [`i-study.md`](https://github.com/retyui/i-study/blob/master/i-study.md),
 + [`words.md`](https://github.com/retyui/i-study/blob/master/words.md),
 + [`i-study-words.md`](https://github.com/retyui/i-study/blob/master/i-study-words.md).
++ [`i-read.md`](https://github.com/retyui/i-study/blob/master/i-read.md).

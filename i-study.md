@@ -6332,3 +6332,5 @@ I came home
 We also thought so
 She told me her secret
 He came to the party
+
+[`38 lesson`](https://www.youtube.com/watch?v=lFaPv8bm2i0&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=81)
