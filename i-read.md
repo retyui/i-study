@@ -236,7 +236,7 @@ N | Слово | Транскрипция
 
 gas glad pan flag plan ham bag map
 stand rat can sat pad bad drag fact
-swan and tap sand trap lab cap hand 
+swan and tap sand trap lab cap hand
 cad dad ran slam fat
 grab ash gap man bat snap tag pat van
 ban hat sad land lap
@@ -263,7 +263,7 @@ club lump
 
 melt rest tent desk bed best
 bet bend ten net step left lend
-get pet test end help red stem 
+get pet test end help red stem
 let tend self pen beg set
 
 fan swam tap cat drag flag bad rat van
@@ -312,3 +312,80 @@ it get bet rip lot cost lid red kit pen
 pit bat melt pop tag hop spot shop bus spin
 
 [`Учимся читать до автоматизма урок 4 английский язык с нуля уроки английского языка`](https://www.youtube.com/watch?v=-sKQeZS3bgs)
+
+bad - bed
+man - men
+
+bad - bade
+hat - hate
+rat - rate
+tap - tape
+
+eve, Pete, Steve
+
+bit - bite
+rid - ride
+sit - site
+spin - spine
+win - wine
+
+cop - cope
+hop - hope
+nod - node
+pop - pope
+
+us - use
+
+stand shake rate save plate slap
+stake cab lab cap ash table same
+place sand trap grade lane pat grab
+plan face take sat fact rat trade taste
+waste fame sake snap can
+
+dad ran stable hat gap act grace
+pan fat land tap slam lace gaze
+late bat gas fan wave sad van swam
+shame lave cat flag hand lap flash
+map bag cake bake
+
+fade man lake glad blade state frame
+lame hate ham able date make brake
+gate pace and tape fake bad game
+drag take ban pad name pale tag safe
+
+
+side Bible kite lift site title its tide
+bite pin fist nice wipe file pit lid
+mile hi bike ship hint lip shift milk
+dime it print slip shine strip bit pig
+rid smile trip ice drive trim
+flip twice in win kit wide tip
+
+dig hip wife drift lime fish price pipe
+sit skin skip pike if prime dip sin swim
+spit fine grin hide size pine risk big pile
+hike wind spin kid list slide disk nine
+film slim rid fit dine clip him
+rip wine bid hit
+
+cope pop cost shop hope rope plot
+broke globe cop stone pole nod gold
+rode noble hop dog mole pot tone spot
+poke lost opt zone role stop log drove
+hot dot note go on lot crop
+no slot code smoke not top
+hole from drop
+
+brush gun fun bug up shut cut tune
+sun run must club cute bus fund hug
+rub use pump drug cup trust tube dug
+rub use nut dust sum plus but
+
+left tend help Pete rest red get net pen
+self desk test pet beg ten best bend
+Steve step let eve end set melt stem
+tent bed bet lend
+
+sly gym shy my try sky fly dry cry
+
+[Учимся читать до автоматизма урок 5 английский язык с нуля уроки английского языка](https://www.youtube.com/watch?v=cbTXFvnRT3k&index=5&list=PL3KDFIV9zTkwoO81KkwPS-6RtkwVDw2s9)
