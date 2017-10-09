@@ -426,7 +426,7 @@ rib pet drug role dip hat grin dust poke rat melt hide
 
 stand file big tide pipe nine plus tip lane tube save prime
 
-bat code fly land smoke able man use stone fit feid left
+bat code fly land smoke able man use stone fit feed left
 
 list spin rid tone set hop from state slave drive cab blade
 
@@ -439,3 +439,42 @@ sum bag dot slip dry hope my make place fun lip plot
 dad bend lump hot cake stop wife hip stable rub hit flash
 
 log van no / know kite pop lend snap fist
+
+[`Учимся читать до автоматизма урок 6 английский язык с нуля уроки английского языка`](https://www.youtube.com/watch?v=EgPEAXUSMzw&list=PL3KDFIV9zTkwoO81KkwPS-6RtkwVDw2s9&index=6)
+
+Немая `e` (исключения)
+be [`biː`]
+he [`hiː`]
+she [`shiː`]
+we [`wiː`]
+me [`miː`]
+the
+
+Другие исключения
+come [`kʌm`]
+have [`hæv`]
+
+Важные слова
+a [`ə`]
+an [`ən`]
+I have a flat
+
+to [`tu:`]
+I hope to win
+
+is [`ız`]
+She is his wife
+
+**`th - ð (звонкий) / θ (гухой)`**
+
+this [`ðis`]
+that [`ðæt`]
+these [`ði:z`]
+those [`ðəʊz`]
+then [`ðen`]
+
+thin [`θin`]
+depth [`depθ`]
+tenth [`tenθ`]
+
+[`Учимся читать до автоматизма урок 7 английский язык с нуля уроки английского языка`](https://www.youtube.com/watch?v=ekqqp9yYCNs&list=PL3KDFIV9zTkwoO81KkwPS-6RtkwVDw2s9&index=7)
