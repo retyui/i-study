@@ -388,4 +388,54 @@ tent bed bet lend
 
 sly gym shy my try sky fly dry cry
 
-[Учимся читать до автоматизма урок 5 английский язык с нуля уроки английского языка](https://www.youtube.com/watch?v=cbTXFvnRT3k&index=5&list=PL3KDFIV9zTkwoO81KkwPS-6RtkwVDw2s9)
+[`Учимся читать до автоматизма урок 5 английский язык с нуля уроки английского языка`](https://www.youtube.com/watch?v=cbTXFvnRT3k&index=5&list=PL3KDFIV9zTkwoO81KkwPS-6RtkwVDw2s9)
+
+dig pig table glad tend wine hole drove on kid bed but
+
+lake role swam mile cat lid gold gut if pan dug date
+
+pine it bet top win sand pen broke not safe up ship
+
+trade red wave ice plan sit sun wide lap best rode trap
+
+ran rip hate late bug go shake dine Bible strip ham zone
+
+grade mole drop brake crop bus shop fan tape name smile hug
+
+gap pile lost lift pike wind pit nod clip game test rate
+
+noble gaze opt fine us cute in self spot sad take must cap
+
+fake nut site fame beg take bid bit  swim drag let
+
+waste grab its bake side gas risk taste spit step bite / byte hint
+
+can nice pad lame help fat net note fact kit skin globe
+
+get shine cop tag end film trust cost hike shy cry skin
+
+sat milk rest flag pot title ten gate club sin map fish
+
+cup and slim bike pump stem run sake tune pin tap desk
+
+lot slot frame bad shame tent plate lime drift hi pat brush
+
+shut wipe trim size slide price act disk dime grace try shift
+
+rib pet drug role dip hat grin dust poke rat melt hide
+
+stand file big tide pipe nine plus tip lane tube save prime
+
+bat code fly land smoke able man use stone fit feid left
+
+list spin rid tone set hop from state slave drive cab blade
+
+slam pole lab pale sky fund lace stake slap pace him ban
+
+trip sly face dog cut twice ash print cope same hand flip
+
+sum bag dot slip dry hope my make place fun lip plot
+
+dad bend lump hot cake stop wife hip stable rub hit flash
+
+log van no / know kite pop lend snap fist
