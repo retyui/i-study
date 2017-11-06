@@ -42,11 +42,20 @@ We like it
 You like it
 They like it
 
-[`1 execrise`](https://www.youtube.com/watch?v=1_Jj-oj0iAA&index=2&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
-Present Simple
+[`1 exercise`](https://www.youtube.com/watch?v=1_Jj-oj0iAA&index=2&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
-The read English books
-I have a house
+Present Simple (I / We / You / They)
+
+They read English books
+I know it
+They read
+I study at school
+You know English well
+We understand you very well
+You speak Russian
+I play
+
+I have a house / flat (I have a/an ...)
 They know it
 We know English very well
 They have a house
@@ -6344,3 +6353,59 @@ She told me her secret
 He came to the party
 
 [`38 lesson`](https://www.youtube.com/watch?v=lFaPv8bm2i0&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=81)
+
+be - was/were - been
+I/He/She/It war
+We/You/They were
+
+I was shocked
+We were surprised by the news
+You were the best student
+They were so inexperienced
+He was so shy
+She was a leader
+It was a very difficult task
+
+show - showed - shown
+He showed me his excellent results
+I showed him my progress
+
+begin - began - begun (start)
+The lesson began an hour ago
+The meting began two hours ago
+The conference began the day before yesterday
+
+sit - sat - sat
+He sat down
+He sat in a chair
+He sat in an armchair
+
+stand - stood - stood
+I stood up
+He sat down and then he stood up
+
+hear - heard -heard
+I heard that story for the first time
+I often heard it when I was there
+
+lose - lost - lost
+She lost her keys
+He lost his wallet
+I lost concentration
+
+speak - spoke - spoken
+I spoke English a lot
+As you understand we spoke English
+He spoke Spanish
+
+pay - paid - paid
+I paid for her
+I paid for this service
+We paid for the delivery
+
+meet - met - met
+We met in a local restaurant
+I met her by chance (by accident)
+I met her almost every day
+I often met new words
+I met him there for the second time
