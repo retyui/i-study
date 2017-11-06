@@ -1,16 +1,24 @@
 [`1 lesson`](https://www.youtube.com/watch?v=1nHDPfECzXs&index=1&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
-I study
+I speak English
+I speak Russian
+I understand
+I understand you
+I understand you very well
+I know English
+I know it
+I work
+I work there
 
-I study university
+I study
+I study at school
 I study at university
 I study there
+I read
 I read books
 I read English books
-I live  in  Russia
-I live in Belarusian
+I live in Russia
 I want it
-
 
 I play
 I play football
@@ -20,9 +28,8 @@ I have a house
 I like English
 I like it
 
-
-I  / We(мы) / You(ты) / They (они)  + Глагол
-I live in Minsk
+I / We(мы) / You(ты) / They (они) + Глагол
+I live in Moscow
 We speak English
 You understand
 They read English books
@@ -31,6 +38,9 @@ We want it
 You know it
 They have a house
 I like it
+We like it
+You like it
+They like it
 
 [`1 execrise`](https://www.youtube.com/watch?v=1_Jj-oj0iAA&index=2&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 Present Simple
