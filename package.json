@@ -10,6 +10,6 @@
   "license": "MIT",
   "dependencies": {},
   "devDependencies": {
-    "yaspeller-ci": "^0.7.0"
+    "yaspeller-ci": "^1.0.0"
   }
 }
