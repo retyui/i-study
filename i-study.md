@@ -6409,3 +6409,5 @@ I met her by chance (by accident)
 I met her almost every day
 I often met new words
 I met him there for the second time
+
+[`38 exercise`](https://www.youtube.com/watch?v=ta_wPc7zD_8&index=82&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
