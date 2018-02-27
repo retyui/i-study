@@ -224,3 +224,110 @@ His mother teaches French
 `She - Her (Она - Её)`
 Her father does business
 She eats fish / meat
+
+[`5 lesson (repeat)`](https://www.youtube.com/watch?v=x9v5Snadtag&index=9&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+```
+I / We / You / They + глагол
+He / She / It + глагол + s
+o + es
+```
+Go - Goes
+I go to work
+She goes to work
+
+Do - Does
+I do it very well
+He does it very well
+
+`ch, sh, x + es`
+
+I often watch TV
+She often watches TV
+She washes up the dishes
+He often relaxes in the evening
+He often has a rest in the evening
+
+My father works there
+My sister knows it very well
+Their parents live there
+This/That lesson seems interesting
+These lessons seem very interesting
+
+It seems interesting
+I work a lot
+She works very hard
+He lives in this house
+She lives in that house
+My friend speaks English fluently
+I like it / We like it / They like it / He like it / She likes it
+He really likes it
+I often go to the park
+My sister has (many / a lot of / lots of) friends
+
+This dress costs 20 pounds
+This dress is pounds
+My father does business
+She eats fish
+She often flies to the United States
+My brother often plays computer games
+My brother likes different computer games
+I try to learn English
+She tries to help him
+I get up early
+He gets up late
+
+[`6 lesson`](https://www.youtube.com/watch?v=iI4ubo2Myok&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=13)
+
+I want this dress
+I want to buy this dress
+I want this thing
+I want to buy this thing
+I want to order this it
+I want to buy a house
+I want to know English really well
+I want to speak English very well
+I want to speak English fluently
+I want to eat / drink
+I want to eat meat
+I want to eat fish
+I want to drink tea / coffee
+
+I want to drink a cup of tea / coffee
+I want to learn English
+I want to go to America next mount
+I want to go to Italy next year
+I want to read this book 
+I want to call her / him / them
+They want to call me
+They want to call us
+I want to visit this place
+I want to get more money
+
+I want to live in another country
+I want to live abroad
+I want to study in the United States
+I want to have my own business
+I want to watch this video
+I want to watch your channel every day
+I want to go to the cinema
+I want to learn English with you
+
+My boss wants more money
+My brother wants to study in another place
+My aunt wants to sell her house
+My uncle  to sell his flat
+Her relative wants to rent a flat
+`a/an + прилагательное + существительное`
+His secretary wants a new job
+His secretary wants to find a new job
+He wants to know everything
+She wants to know all the information
+
+I want to help you
+I want to thank you
+I also want to thank you
+Thanks! Thank you!
+Thank you very much! Thanks a lot!
+
+[`7 lesson`](https://www.youtube.com/watch?v=crmUCtK2J-E&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=15)
