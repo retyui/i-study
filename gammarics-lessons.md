@@ -331,3 +331,69 @@ Thanks! Thank you!
 Thank you very much! Thanks a lot!
 
 [`7 lesson`](https://www.youtube.com/watch?v=crmUCtK2J-E&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=15)
+
+`Want to + глагол`
+I want to learn English
+I want to order it
+
+`I would like to + глагол`
+I would like to learn English
+I would like to order it
+
+I'd like to learn English
+I'd like to order it
+I'd like to do it now
+I'd like to do it right now
+I'd like to talk/speak about it
+I'd like to talk/speak about that
+
+I'd like to talk about this problem
+I'd like to now it
+I'd like to do it again
+I'd like to do one more time
+I'd like to buy a new computer
+I'd like to read a book in English
+I'd like to write it down
+I'd like to listen to music
+I'd like to listen to this song
+
+I'd like to go to the party
+I'd like to go to this party
+I'd like to go to restaurant
+I'd like to go to this/that restaurant
+I'd like to tell you everything
+I'd like to say it
+I'd like to know all the news
+I'd like to tell you all the information
+I'd like to hear this story
+I'd like to hear all the story
+
+I'd like to translate this word
+I'd like to translate this phrase
+I'd like to translate this sentence
+I'd like to work more
+I'd like to work less
+I'd like to work more to get/earn more money
+I'd like to work less to have more free time
+I'd like to understand English speech
+I'd like to understand native speakers
+
+I'd like to be a teacher
+I'd like to become a teacher
+I'd like to be a manager
+I'd to become a manager
+I'd like to be a businessman
+I'd like to become a businessman
+I'd like to have my own business
+I'd like to have my own YouTube channel
+We'd like to invite you to the party
+They'd like to join us
+I see you'd like to live here
+
+He's like to get his job
+She'd like to learn English (here/in this place)
+I'd like to thank you
+I'd really want to thank you
+I'd really like to thank you for your help / support / everything
+
+[`8 lesson`](https://www.youtube.com/watch?v=s-jHjH5UgUQ&index=17&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
