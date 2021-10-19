@@ -3,13 +3,12 @@
   "version": "6.6.6",
   "main": "index.js",
   "scripts": {
-    "test": "yaspeller-ci ./*.md"
+    "test": "yaspeller-ci ./*.md --only-errors --format markdown --lang en,ru --check-yo"
   },
   "repository": "https://github.com/retyui/i-study.git",
-  "author": "DAVID♥ <vamnemne@gmail.com>",
+  "author": "David <4661784+retyui@users.noreply.github.com>",
   "license": "MIT",
-  "dependencies": {},
   "devDependencies": {
-    "yaspeller-ci": "^1.0.0"
+    "yaspeller-ci": "^1.0.2"
   }
 }

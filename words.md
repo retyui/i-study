@@ -3,7 +3,7 @@
 |also|так же|
 |always|всегда|
 |any|какие либо|
-|aunt|тетя|
+|aunt|тётя|
 |better|лучше|
 |business|бизнес|
 |busy|занят|

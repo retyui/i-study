@@ -115,7 +115,7 @@ note
 
 [`Учимся читать до автоматизма урок 3 английский язык с нуля уроки английского языка`](https://www.youtube.com/watch?v=S2tIrg7-OWc)
 
-
+<!-- yaspeller ignore:start -->
 <table>
 	<thead>
 		<tr>
@@ -179,60 +179,58 @@ note
 		</tr>
 	</tbody>
 </table>
+<!-- yaspeller ignore:end -->
 
-
-N | Слово | Транскрипция
---- | --- | ---
-1 | act | `[æct]`
-2 | and | `[ænd]`
-3 | ash | `[æʃ]`
-4 | bad | `[bæd]`
-5 | bag | `[bæg]`
-6 | ban | `[bæn]`
-7 | bat | `[bæt]`
-8 | cab | `[cæb]`
-9 | can | `[cæn]`
-10 | cap | `[cæp]`
-11 | cat | `[cæt]`
-12 | dad | `[dæd]`
-13 | drag | `[dræg]`
-14 | fact | `[fæct]`
-15 | fan | `[fæn]`
-16 | fat | `[fæt]`
-17 | flag | `[flæg]`
-18 | flash | `[flæʃ]`
-19 | gap | `[gæp]`
-20 | gas | `[gæs]`
-21 | glad | `[glæd]`
-22 | grab | `[græb]`
-23 | ham | `[hæm]`
-24 | hand | `[hænd]`
-25 | hat | `[hæt]`
-26 | lab | `[læb]`
-27 | land | `[lænd]`
-28 | lap | `[læp]`
-29 | man | `[mæn]`
-30 | map | `[mæp]`
-31 | pad | `[pæd]`
-32 | pan | `[pæn]`
-33 | pat | `[pæt]`
-34 | plan | `[plæn]`
-35 | ran | `[ræn]`
-36 | rat | `[ræt]`
-37 | sad | `[sæd]`
-38 | sand | `[sænd]`
-39 | sat | `[sæt]`
-40 | slam | `[slæm]`
-41 | slap | `[slæp]`
-42 | snap | `[snæp]`
-43 | stand | `[stænd]`
-44 | swam | `[swæm]`
-45 | tag | `[tæg]`
-46 | tap | `[tæp]`
-47 | trap | `[træp]`
-48 | van | `[væn]`
-
-
+| N   | Слово | Транскрипция |
+| --- | ----- | ------------ |
+| 1   | act   | `[æct]`      |
+| 2   | and   | `[ænd]`      |
+| 3   | ash   | `[æʃ]`       |
+| 4   | bad   | `[bæd]`      |
+| 5   | bag   | `[bæg]`      |
+| 6   | ban   | `[bæn]`      |
+| 7   | bat   | `[bæt]`      |
+| 8   | cab   | `[cæb]`      |
+| 9   | can   | `[cæn]`      |
+| 10  | cap   | `[cæp]`      |
+| 11  | cat   | `[cæt]`      |
+| 12  | dad   | `[dæd]`      |
+| 13  | drag  | `[dræg]`     |
+| 14  | fact  | `[fæct]`     |
+| 15  | fan   | `[fæn]`      |
+| 16  | fat   | `[fæt]`      |
+| 17  | flag  | `[flæg]`     |
+| 18  | flash | `[flæʃ]`     |
+| 19  | gap   | `[gæp]`      |
+| 20  | gas   | `[gæs]`      |
+| 21  | glad  | `[glæd]`     |
+| 22  | grab  | `[græb]`     |
+| 23  | ham   | `[hæm]`      |
+| 24  | hand  | `[hænd]`     |
+| 25  | hat   | `[hæt]`      |
+| 26  | lab   | `[læb]`      |
+| 27  | land  | `[lænd]`     |
+| 28  | lap   | `[læp]`      |
+| 29  | man   | `[mæn]`      |
+| 30  | map   | `[mæp]`      |
+| 31  | pad   | `[pæd]`      |
+| 32  | pan   | `[pæn]`      |
+| 33  | pat   | `[pæt]`      |
+| 34  | plan  | `[plæn]`     |
+| 35  | ran   | `[ræn]`      |
+| 36  | rat   | `[ræt]`      |
+| 37  | sad   | `[sæd]`      |
+| 38  | sand  | `[sænd]`     |
+| 39  | sat   | `[sæt]`      |
+| 40  | slam  | `[slæm]`     |
+| 41  | slap  | `[slæp]`     |
+| 42  | snap  | `[snæp]`     |
+| 43  | stand | `[stænd]`    |
+| 44  | swam  | `[swæm]`     |
+| 45  | tag   | `[tæg]`      |
+| 46  | tap   | `[tæp]`      |
+| 47  | trap  | `[træp]`     |
+| 48  | van   | `[væn]`      |
 
 gas glad pan flag plan ham bag map
 stand rat can sat pad bad drag fact
@@ -353,7 +351,6 @@ lame hate ham able date make brake
 gate pace and tape fake bad game
 drag take ban pad name pale tag safe
 
-
 side Bible kite lift site title its tide
 bite pin fist nice wipe file pit lid
 mile hi bike ship hint lip shift milk
@@ -406,7 +403,7 @@ gap pile lost lift pike wind pit nod clip game test rate
 
 noble gaze opt fine us cute in self spot sad take must cap
 
-fake nut site fame beg take bid bit  swim drag let
+fake nut site fame beg take bid bit swim drag let
 
 waste grab its bake side gas risk taste spit step bite / byte hint
 

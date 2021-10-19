@@ -1,6 +1,6 @@
 [`1 lesson`](https://www.youtube.com/watch?v=1nHDPfECzXs&index=1&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
-подлежащее + сказуемое 
+подлежащее + сказуемое
 
 I speak English
 I speak Russian
@@ -42,7 +42,7 @@ You know it
 They have a house
 I like it
 We like it
-You like it 
+You like it
 They like it
 
 [`2 lesson`](https://www.youtube.com/watch?v=Nr9THy3r-ho&index=3&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
@@ -77,7 +77,7 @@ I really like these lessons
 He swims very well
 She understands this lesson
 He remembers it
-It works  well
+It works well
 She speaks Spanish
 I speak English fluently
 He speaks English fluently
@@ -113,13 +113,13 @@ It really helps me
 `Если глагол заканчиваеться на 'o' + 'es' то мы дабавляем не 's' а 'es'`
 go -> goes; do -> does
 
-I go there          - She/He goes there
-I do it well        - She/He does it well
-I do housework      - She/He does housework
-I go to work        - He/She goes to work
-I go to school      - He/She goes to school
-I go to the park    - He/She goes to the park
-I go to the cinema  - He/She goes to the cinema 
+I go there - She/He goes there
+I do it well - She/He does it well
+I do housework - She/He does housework
+I go to work - He/She goes to work
+I go to school - He/She goes to school
+I go to the park - He/She goes to the park
+I go to the cinema - He/She goes to the cinema
 I go to the theatre - He/She goes to the theatre
 
 I go there
@@ -128,7 +128,7 @@ I often do it
 He often goes there
 She often does it
 
-`Если глагол заканчиваеться на ch, sh,x  + es то дабавляем к глаголу 'es'`
+`Если глагол заканчиваеться на ch, sh,x + es то дабавляем к глаголу 'es'`
 
 I teach English. She teaches English
 I watch TV/television. He watches TV
@@ -151,7 +151,6 @@ I often fly to the United States
 I often go to China
 He often flies to the United States
 She often goes to China
-
 
 He often cries
 `Правило двух глаголов! Разделяем предлогом 'to'`
@@ -232,6 +231,7 @@ I / We / You / They + глагол
 He / She / It + глагол + s
 o + es
 ```
+
 Go - Goes
 I go to work
 She goes to work
@@ -297,7 +297,7 @@ I want to drink a cup of tea / coffee
 I want to learn English
 I want to go to America next mount
 I want to go to Italy next year
-I want to read this book 
+I want to read this book
 I want to call her / him / them
 They want to call me
 They want to call us
@@ -316,7 +316,7 @@ I want to learn English with you
 My boss wants more money
 My brother wants to study in another place
 My aunt wants to sell her house
-My uncle  to sell his flat
+My uncle to sell his flat
 Her relative wants to rent a flat
 `a/an + прилагательное + существительное`
 His secretary wants a new job

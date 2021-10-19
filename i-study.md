@@ -198,7 +198,6 @@ She sees it
 She understands you
 It seems interesting
 
-
 She eats meat
 He eats fish
 It happens
@@ -303,7 +302,7 @@ She speaks English fluently
 She plays
 She works a lot // Она работает много
 She eats meat // Она ест мясо
-He gets up late // Он стает поздно
+He gets up late // Он стаёт поздно
 She works
 She lives in London
 He remembers it
@@ -323,17 +322,15 @@ He speaks in Spanish fluently
 She speaks in Spanish very well
 She lines in Moscow
 
-
 [`3 lesson`](https://youtu.be/Zf1Kxwm4Bh0?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
-Я / Мы / Ты  / они
+Я / Мы / Ты / они
 I / We / You / They
 
 I work there
 We know it very well
 You understand me
 They live in England
-
 
 Он / Она / Это
 He / She / It + Глагол + s
@@ -346,14 +343,14 @@ It really helps me
 
 go - goes; do - does
 
-I go                - She goes
-I go there          - She/It/He goes there
-I do it well        - She does it well
-I do housework      - She/He does housework
-I go to work        - He/She goes to work
-I go to school      - He/She goes to school
-I go to the park    - He/She goes to the park
-I go to the cinema  - He/She goes to the cinema
+I go - She goes
+I go there - She/It/He goes there
+I do it well - She does it well
+I do housework - She/He does housework
+I go to work - He/She goes to work
+I go to school - He/She goes to school
+I go to the park - He/She goes to the park
+I go to the cinema - He/She goes to the cinema
 I go to the theatre - // Я/Он ходит к театр
 
 I go there. // Я иду туда
@@ -367,7 +364,7 @@ She often does it
 I teach English
 She teaches English
 I watch TV(television) - He watches TV
-I watch TV every day   - He watches TV every day
+I watch TV every day - He watches TV every day
 
 wash - мыть
 wash up the dishes - мыть посуду
@@ -377,9 +374,8 @@ relax - отдыхать
 I usually(обычно) relax in the evening
 She usually relaxes in the evening
 
-
 !!!Если глагол заканчивается на Гласная+`"y"` то добавляем `"s"`!!!
-I play football        - He plays football
+I play football - He plays football
 We play computer games - He plays computer games
 !!!Если глагол заканчивается на Согласная+`"y"` то `"y"`->(заменяется)`"i"`+`"es"`(прибавляется) !!!
 
@@ -406,21 +402,15 @@ have - иметь
 I / We / You / They have
 He / She / It has
 
-I have a car            - He has a car
-I have a computer       - She has a computer
-I have a house          - He has a house
+I have a car - He has a car
+I have a computer - She has a computer
+I have a house - He has a house
 I have a flat(квартира) - She has a flat
 =======↓ - Артикул "а" ставиться при одиночном числе (не множественном)
-I have many friends     - He has many friends
-I have a job            - She has a job
+I have many friends - He has many friends
+I have a job - She has a job
 He has a girlfriend
 She has a boyfriend
-
-
-
-
-
-
 
 [03 exercise](https://www.youtube.com/watch?v=95tXqVhMM1k&index=6&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
@@ -529,7 +519,6 @@ He goes there
 He often goes there
 She often flies to England
 
-
 [04 lesson](https://www.youtube.com/watch?v=HQWfe-HBg50&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=7)
 
 Present Simple
@@ -540,7 +529,6 @@ He/She/It + глагол + s
 This lesson helps me (This lesson => It)
 Этот урок помогает мне
 Это(It) помогает мне
-
 
 These lessons help me (They )
 Эти уроки помогаю мне
@@ -592,17 +580,14 @@ Your house looks beautiful
 They - Their (Они - Их)
 Their teacher says so
 
-
 He - his (Он -его)
 His parents work there (They)
 His mother teaches French
 
-She - her (Она  - её)
+She - her (Она - её)
 Her farther does business
 
 She eats fish / meat
-
-
 
 [04 exercise](https://www.youtube.com/watch?v=LQ8gSg-mG1M&index=8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
@@ -698,7 +683,6 @@ Your brother swims very well
 My mother likes this idea
 My parents know it
 
-
 [05 repeat](https://www.youtube.com/watch?v=x9v5Snadtag&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=9)
 
 Present Simple
@@ -753,7 +737,6 @@ She tries to help him
 I get up early
 He gets up late
 
-
 [05.1 lesson](https://www.youtube.com/watch?v=tgZX-W6RXSk&index=10&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 It seems interesting
 She often does it
@@ -783,7 +766,7 @@ We do business
 He has a friend
 She works very hard
 She teaches English
-He often  flies to the United States
+He often flies to the United States
 He reads English books
 
 He often flies to England
@@ -842,7 +825,6 @@ They often watch TV
 She often flies to England
 We often play football
 I often listen to music
-
 
 [5.2 exercise](https://www.youtube.com/watch?list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&v=MyW2oAiQ4Ew)
 
@@ -1072,7 +1054,7 @@ My aunt wants to sell her house
 My uncle wants to sell his flat
 Her relative wants to rent a flat
 His secretary wants a new job
-!!!Если `прилагательное +  существительно ед. числа` то добавляем артикул `a/an`+ `прил.` +`сущ.`  если согласный звук то `а` в противном случае `an` !!!
+!!!Если `прилагательное + существительно ед. числа` то добавляем артикул `a/an`+ `прил.` +`сущ.` если согласный звук то `а` в противном случае `an` !!!
 His secretary wants to find a new job
 He want to knows everything
 She want to knows all the information
@@ -1344,8 +1326,8 @@ Examples:
 I watch this channel every day
 
 Present Simple (negative form)
-I / We / You /They + don't   + глагол
-He/ She/ It        + doesn't + глагол
+I / We / You /They + don't + глагол
+He/ She/ It + doesn't + глагол
 
 I don't watch this channel every day
 I live in England. I don't live in England
@@ -1364,7 +1346,6 @@ I don't go to work. I don't work. I stay at home
 
 I don't like this place. I like another/that place.
 
-
 It doesn't cost much(много). It costs little.
 
 It doesn't cost little. It costs a lot.
@@ -1376,7 +1357,6 @@ I don't live in New York. I live in Los Angeles
 I don't like this game.
 I like that game
 
-
 I play computer/different games.
 I don't play the piano. I play the guitar
 
@@ -1386,7 +1366,6 @@ I don't buy newspapers or magazine. I read them online.
 
 I don't know much about politics. It doesn't interest me
 
-
 I don't speak Chinese. I speak English and Spanish.
 
 She doesn't like her job. She wants to find another job
@@ -1394,7 +1373,6 @@ She doesn't like her job. She wants to find another job
 I don't eat meat but I eat fish.
 
 I don't play tennis. She plays it
-
 
 I don't do physical exercises at home. I go to the gym
 
@@ -1464,10 +1442,9 @@ My girlfriend lives there
 
 Present Simple (negative form)
 I/We/You/They + don't + глагол
-He/She/It   + doesn't + глагол(verb)
+He/She/It + doesn't + глагол(verb)
 
 My girlfriend doesn't live there
-
 
 My brother doesn't want to do this homework
 My cousin doesn't go to concerts. He doesn't like it
@@ -1672,7 +1649,6 @@ I need to do it again
 She needs to go shopping
 My cousin needs to see it
 
-
 She often calls us
 She often calls you
 She often calls him
@@ -1684,10 +1660,8 @@ She has a car
 She has a good car
 He has a big house
 
-
 I need your help
 I really need your help
-
 
 I'd like to hear this story
 I'd like to listen to this song
@@ -1991,7 +1965,7 @@ You see he doesn't understand you
 
 I don't see him
 We don't work there
-I also need  to know it
+I also need to know it
 I want to speak English fluently
 I want to study in the United States
 I don't do physical exercise at home
@@ -2094,7 +2068,7 @@ I'd like to know all the news
 
 This idea doesn't seem interesting
 I need to save this document / file
-I'd like to work less to  have more free time
+I'd like to work less to have more free time
 I'd like to have my own YouTube channel business
 house
 flat
@@ -2248,7 +2222,6 @@ Do I show good results?
 We have an interesting offer
 Do we have an interesting offer?
 
-
 You do it professionally (English)
 Professionally - our channel)
 Do you do it professionally?
@@ -2271,7 +2244,6 @@ Do they get 500 dollars a mouth?
 
 I make mistakes
 Do I make mistakes?
-
 
 You also think so
 Do you think so?
@@ -2357,7 +2329,6 @@ Does she understand us?
 Does she speak English?
 Does hi live there?
 Does it help you a lot?
-
 
 Does it seem interesting?
 Does it look beautiful?
@@ -2557,7 +2528,7 @@ Does her husband usually buy cheap things?
 
 Do these things interest you?
 Do his parents believe in God?
-Do these boys  show good results?
+Do these boys show good results?
 Does this boy often make mistakes?
 Does this idea seem very interesting?
 Does your mother work or stay at home?
@@ -2588,8 +2559,6 @@ They have their own business
 They don't have their own business
 Do they have their own business?
 
-
-
 My brother waits for it
 My brother doesn't wait it
 Does my brother wait for it?
@@ -2597,7 +2566,6 @@ Does my brother wait for it?
 My sister loves him (his/her book)
 My sister doesn't love him
 Does my sister love him?
-
 
 My teacher remembers everything (all these thing / all these fact / all the/this information)
 My teacher doesn't remember everything?
@@ -2608,7 +2576,6 @@ My boss forget these things
 My boss doesn't forget these thing
 Does my boss forget these things?
 
-
 The company offers us new workers
 The company doesn't offer us new workers
 Does the company offer us new workers?
@@ -2616,7 +2583,6 @@ Does the company offer us new workers?
 The book seems very useful
 The book doesn't seem very useful
 Does the book seem very useful
-
 
 My ticket includes it
 My ticket doesn't include it
@@ -2636,7 +2602,6 @@ These results seem very good
 These results don't seem very good
 Do these results seem very good?
 
-
 The results seem good
 The results don't seem good
 Do the result seem good?
@@ -2649,7 +2614,6 @@ My friend has an interesting offer
 My friend doesn't have an interesting offer
 Does my friend have an ...
 
-
 My friends have an interesting offer
 My friends don't have interesting offer
 Do my friend have an interesting offer
@@ -2657,8 +2621,6 @@ Do my friend have an interesting offer
 My teacher says it
 My teacher doesn't say it
 Does my teacher say it?
-
-
 
 His parents tall him everything
 His parents don't tell him everything
@@ -2668,7 +2630,6 @@ My brother tries to learn English
 My brother doesn't try to learn English
 Does my brother try to learn English?
 
-
 That thing interests them
 That thing doesn't interest them
 Does that thing interest them
@@ -2677,7 +2638,6 @@ Those things interest her
 Those things don't interest her
 Do those things interest her?
 
-
 Her mother stays at home
 Her mother doesn't stay at home
 Does her mother stay at home?
@@ -2685,7 +2645,6 @@ Does her mother stay at home?
 My best friend needs support now
 My best friend doesn't need support now
 Does my best friend need support now?
-
 
 He has his own business
 He doesn't have his own business
@@ -2955,7 +2914,6 @@ Does she find it boring?
 Do your parents find it strange?
 Does your friend consider it a waste of time?
 
-
 When/Where/Why/How/What + do/does + subject + verb?
 
 Why does he complain?
@@ -2980,7 +2938,6 @@ I don't have a car
 I haven't got a car
 
 Does she get 300 dollars a month?
-
 
 I go to work
 I work very hard
@@ -3008,7 +2965,7 @@ I think I like it
 
 I get up early
 I usually get up early
-+It works w	ell
++It works w ell
 -It doesn't work well
 ?Does it work well
 
@@ -3164,7 +3121,6 @@ I/We/You/They have an idea
 He/She has an idea
 
 I'd like to talk/speak to/with you(talk to)
-
 
 When do the lessons finis?
 When does the lesson finis?
@@ -3399,7 +3355,7 @@ Do you colleagues live near this place?
 Does it seem really interesting?
 What do they do?
 Do you try to learn English?
-Do these girls make mistakes  when they speak English?
+Do these girls make mistakes when they speak English?
 Why do you believe him?
 Where to they see her?
 
@@ -3746,8 +3702,8 @@ My friend is a designer
 
 [`23 exercise`](https://www.youtube.com/watch?v=t3OfrLOBVZk&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=49)
 
-All these  lessons are very useful
-The ticket is  expensive
+All these lessons are very useful
+The ticket is expensive
 The chair is comfortable
 My friend is 25 (years old)
 My cousin is tired
@@ -3848,7 +3804,7 @@ My computer is new
 I'm American
 They're from America
 My progress is real
-My friend is  ill
+My friend is ill
 My sister is in bad
 This exercise is too difficult
 That exercise is too easy
@@ -3884,7 +3840,7 @@ It's a new car - Is isn't a new car - It's an old car
 I'm not; We/You/They aren't;
 He/She/It isn't
 
-I'm  not married. I'm single
+I'm not married. I'm single
 We aren't friend and we aren't enemies
 They aren't partners. They are only(just) friend
 He isn't hungry. He isn't thirsty
@@ -4057,7 +4013,7 @@ Those people aren't right
 
 [`25 exercise`](https://www.youtube.com/watch?v=9Ft39tRZqFA&index=53&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
-!!!Артикул не ставиться  если:
+!!!Артикул не ставиться если:
 another / other
 my/your/... притяжательные местоимения
 this/that
@@ -4094,7 +4050,7 @@ My parents aren't in the park
 Those videos aren't good enough
 Tests aren't so easy for me (The tests ...)
 His money isn't enough
-The books aren't  expensive
+The books aren't expensive
 
 These things aren't so important
 Her boyfriend isn't there
@@ -4240,7 +4196,7 @@ Are they your colleagues?
 Are they managers?
 
 Is It an interesting book
-Are you afraid  of difficulties?
+Are you afraid of difficulties?
 Is he busy at the moment?
 Is he a hard-working person?
 Is she pregnant?
@@ -4309,7 +4265,7 @@ Is she an actress?
 Is it a funny video?
 Is it very important?
 Are they experts in this area?
-Are we far from  this place?
+Are we far from this place?
 
 Is she your acquaintance?
 Is she a successful businesswoman?
@@ -4409,7 +4365,7 @@ Is this thing really necessary?
 Is this thing really so important?
 Is his level high enough?
 
-Are these exercises  useful?
+Are these exercises useful?
 Is the video really useful?
 Is the boy really so talented?
 Is that exercise difficult?
@@ -4639,7 +4595,7 @@ I'm not hungry
 The tickets are cheap
 I'm not American. I'm Russian
 This exercise isn't difficult
-These  things aren't so important
+These things aren't so important
 
 It's so difficult
 They're in Russia
@@ -4650,7 +4606,7 @@ Is it a strange thing?
 The hotel is expensive
 Are they wrong?
 My boss isn't at work
-We  aren't friends and we aren't enemies
+We aren't friends and we aren't enemies
 
 [`28.2 exercise`](https://www.youtube.com/watch?v=DKYWNDa3Pn8&index=60&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
@@ -4772,17 +4728,20 @@ They aren't rich. They're poor
 
 [`29 lessons`](https://www.youtube.com/watch?v=CkdyaCbf3DI&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=61)
 
-+ I'm right
-- I'm not right
-? Am I right?
+- I'm right
 
-+ We're sure (certain)
-- We aren't sure
-? Are we sure?
+* I'm not right
+  ? Am I right?
 
-+ You're near the park
-- You aren't near the park
-? Are you near the park?
+- We're sure (certain)
+
+* We aren't sure
+  ? Are we sure?
+
+- You're near the park
+
+* You aren't near the park
+  ? Are you near the park?
 
 They're in a save place
 They aren't in a save place
@@ -5236,12 +5195,13 @@ How much is it? (How much does is cost?)
 How much is this computer?
 How much are the tickets?
 How often 1)is she late? (be late)
-2) dose she often come late?
-How often is your boss late?
-How often are they together?
-How long is the way?
-How long is one English lessons?
-How cheap/expensive/popular is it?
+
+2. dose she often come late?
+   How often is your boss late?
+   How often are they together?
+   How long is the way?
+   How long is one English lessons?
+   How cheap/expensive/popular is it?
 
 How long is the lesson?
 How long does the lesson last?
@@ -5671,9 +5631,10 @@ I don't have / I haven't got an article
 -It isn't a difficult lesson
 ?Is it a difficult lesson?
 
-+ The lesson is for strong student(weak)
-- The lesson isn't for strong student
-? It the lesson for strong student
+- The lesson is for strong student(weak)
+
+* The lesson isn't for strong student
+  ? It the lesson for strong student
 
 +It's his weak point
 It isn't his weak point
@@ -5830,22 +5791,25 @@ General Question(Yes / No) / Special Question
 He (1) wants to know (4) English (5) perfectly (2) for many reasons (3)
 
 Does he want to know English perfectly for many reasons?
-1) Who wants to know English perfectly?
-2) How does he want to know English?
-3) Why does he want to know English perfectly?
-4) What does he want to do?
-5) What does he want to know?
+
+1. Who wants to know English perfectly?
+2. How does he want to know English?
+3. Why does he want to know English perfectly?
+4. What does he want to do?
+5. What does he want to know?
 
 She goes to the gym (1) three times a week (2)
 
 Does she go to the gym three times a week?
-1) Where does she go three times a week?
-2) How often does she go to the gym?
-How many times a week does she go to the gym
+
+1. Where does she go three times a week?
+2. How often does she go to the gym?
+   How many times a week does she go to the gym
 
 My friend wants to discuss it (2) tomorrow(1)
-1) When does my friend want to discuss it?
-2) What does my friend want to discuss?
+
+1. When does my friend want to discuss it?
+2. What does my friend want to discuss?
 
 It's five o'clock
 
@@ -5858,15 +5822,17 @@ What time is it now?
 How are you?
 
 His knowledge is really (1) good
-1) How good is his knowledge?
+
+1. How good is his knowledge?
 
 She (2) wants to try (3) get (4) this (1) job (5)
 Does she want to try to get this job?
-1) What job does she want to try to get?
-2) Who wants to try to get this job?
-3) What does she want to do?
-4) What does she want to try to do?
-5) What does she want to try to get?
+
+1. What job does she want to try to get?
+2. Who wants to try to get this job?
+3. What does she want to do?
+4. What does she want to try to do?
+5. What does she want to try to get?
 
 [`34 exercise`](https://www.youtube.com/watch?v=NK784PRRqp4&index=74&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
 
@@ -5985,9 +5951,10 @@ The pen is black
 Past Simple
 вторая форма глагола
 Глаголы (verbs)
-1) Regular verbs
-If it's a regular verb, we add 'Ed'
-verb + Ed
+
+1. Regular verbs
+   If it's a regular verb, we add 'Ed'
+   verb + Ed
 
 Present simple
 He works too much
@@ -5996,11 +5963,11 @@ Past Simple
 He worked too much
 She wanted to find a better job
 
-2) Irregular verbs
-say - said - said
-He said it loudly (quiet - quietly)
-go - went - gone
-He went there by car
+2. Irregular verbs
+   say - said - said
+   He said it loudly (quiet - quietly)
+   go - went - gone
+   He went there by car
 
 I lived there a long time ago
 They lived happily
@@ -6229,7 +6196,7 @@ I thought about this problem
 We thought about the future of this company
 I thought so
 
-go/come to  !but! => (go/come home)
+go/come to !but! => (go/come home)
 come - came - come
 He came to the party
 They came to the meeting
