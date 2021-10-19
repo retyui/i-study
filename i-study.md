@@ -6378,3 +6378,72 @@ I often met new words
 I met him there for the second time
 
 [`38 exercise`](https://www.youtube.com/watch?v=ta_wPc7zD_8&index=82&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX)
+
+We met in a local restaurant
+I was shocker
+I was really surprised
+It was surprising for us
+I paid for her
+I sat on a soft chair
+She sat in an armchair
+He lost his wallet
+
+He lost his passport
+He sat down and then he stood up
+He was such an experienced worker
+I stood up
+The lesson began an hour ago
+She often heard it when she was young
+I was shocked the by the results
+I lost concentration
+
+I spoke English a lot
+The meeting began two hours ago
+We were surprised by the news
+I heard that story fro the first time
+I heard loud music
+He was their leader
+She showed us her achievements
+We paid for the delivery
+I met her almost every day
+
+I often heard it when I was there
+She was a leader
+He sat down
+I met him there for the second time
+I met her by chance
+As you understand we spoke English
+It was such a difficult task
+You were the best student
+He was a very talented boy
+
+It was a very important test
+As you know I met him three days ago
+He paid for us
+She lost her keys
+We met each other yesterday
+The lesson began on time
+She spoke Spanish
+I paid for this service
+She lost her bag
+
+He sat on a chair
+He showed me his excellent results
+He was so shy
+They were so inexperienced
+I often met new works
+I showed him my progress
+We heard his voice
+It was a very big problem
+It paid for everything
+I was the best student
+
+The girl was very shy
+The conference began the day before yesterday
+It was a big success
+They were together
+The place was so dangerous
+It was such a dangerous place
+We met at last
+
+[`39 lesson`](https://www.youtube.com/watch?v=K_5n7DNNg6A&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=83)
