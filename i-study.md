@@ -6456,7 +6456,7 @@ She bought a very powerful computer
 sell sold sold
 He sold his flat
 She sold her car
-She sold it for 200 (tow handred) dollars
+She sold it for 200 (tow hundred) dollars
 
 choose chose chosen
 I chose your lessons
@@ -6470,7 +6470,7 @@ We sent her a couple of letters
 
 eat ate eaten
 I ate everything
-I ate it for breckfast
+I ate it for breakfast
 He ate meat and fish
 I ate some fish
 I ate two sandwiches
@@ -6500,5 +6500,75 @@ He swam in the lake
 
 cost cost cost
 It cost too much
-It cont a lot
+It cost a lot
 The computer cost 500 (five hundred) dollars
+
+[`39 exercise`](https://www.youtube.com/watch?v=bKWjeTDbjLU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=84)
+
+He sold his old car
+I slept like a baby
+I slept in my new room
+He sent me two e-mails
+I sent her an e-mail
+We flew to another city
+I bought it for 300 (three hundred) dollars
+I chose your lessons
+
+I drank a glass of water
+I ate two sandwiches
+She chose such a beautiful present
+She sold it for 400 (four hundred) dollars
+I chose your method
+She sent him two messages
+I ate my portion
+She slept normally
+
+I slept very long
+She drank milk
+I ate some fish
+He ate meat and fish
+We swam in the swimming pool
+He slept little
+She bought a very powerful computer
+We ate together
+The bird flew away
+
+The computer cost 500 (five hundred) dollars
+She flew to America
+He drank a glass of wine
+He swam in the lake
+I drank a cup of coffee
+She sold her car
+It cost a lot
+It cost too much
+I ate enough
+He ate everything
+
+I drank tea
+I bought one more computer
+I ate it for breakfast
+I drank a glass of juice
+We chose another room
+I chose this channel
+He bought a flat
+We sent her a couple of letters
+She bought a new car
+He bought a very beautiful dress for her
+
+He drank some milk
+I flew to New York
+He slept too long
+I sent her a message
+The ticket cost 20 (twenty) dollars
+They flew very high
+She ate only vegetables
+I swam in the sea
+He sold his flat
+
+He bought a very reliable car
+He sent her flowers
+We drank a carton of milk
+We swam in the river
+I drank a cup of tea
+We bought a bottle of milk
+I want to tell you that we chose another place
