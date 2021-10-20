@@ -6447,3 +6447,58 @@ It was such a dangerous place
 We met at last
 
 [`39 lesson`](https://www.youtube.com/watch?v=K_5n7DNNg6A&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=83)
+
+buy bought bought
+He bought a flat
+He bought a very reliable car
+She bought a very powerful computer
+
+sell sold sold
+He sold his flat
+She sold her car
+She sold it for 200 (tow handred) dollars
+
+choose chose chosen
+I chose your lessons
+I chose this method
+She chose such a beautiful present
+
+send sent sent
+I sent her a message
+He sent me an e-mail
+We sent her a couple of letters
+
+eat ate eaten
+I ate everything
+I ate it for breckfast
+He ate meat and fish
+I ate some fish
+I ate two sandwiches
+
+drink drank drunk
+She drank milk
+He drank a glass of wine
+I drank a glass of juice
+I drank tea
+
+fly flew flown
+I flew to New York
+They flew very high
+She flew to America
+The bird flew away
+
+sleep slept slept
+I slept very long
+She slept normally
+I slept in my new room
+He slept like a baby
+
+swim swam swum
+I swam in the sea
+We swam in the river
+He swam in the lake
+
+cost cost cost
+It cost too much
+It cont a lot
+The computer cost 500 (five hundred) dollars
