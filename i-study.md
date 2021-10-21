@@ -6572,3 +6572,58 @@ We swam in the river
 I drank a cup of tea
 We bought a bottle of milk
 I want to tell you that we chose another place
+
+[`40 lesson`](https://www.youtube.com/watch?v=GA4pfSn8oVY&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=85)
+
+steal stole stolne
+They stole this information
+He stole her bug
+They stole his idea
+
+wake woke woken
+I woke up very early (I got up very early)
+I woke up at 6 o'clock in the morning
+He woke up late
+
+leave left left (I live in this city)
+I left my wallet at home
+I left it in my room
+I left Russia
+We left America
+
+break broke broken
+They broke the rules
+He broke the window
+break down
+His car often broke down
+
+keep kept kept
+I keptjis secret
+I kept my promise
+He kept his word
+
+hold help help
+He held her bug
+He held that box
+He held it in his arms
+
+let let let
+let somebody do something
+His parents let him go out
+They let him stay there until midnight
+His parents let him play outside
+
+mean meant meant
+It meant the following
+His behavior meant the following thing
+It meant nothing
+(It didn't mean anything)
+
+win won won
+I won in that competition
+We won in that tournament
+We won the game
+
+blow blew blown
+The wind blew suddenly
+The wind blew so strongly
