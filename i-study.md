@@ -6575,7 +6575,7 @@ I want to tell you that we chose another place
 
 [`40 lesson`](https://www.youtube.com/watch?v=GA4pfSn8oVY&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=85)
 
-steal stole stolne
+steal stole stolen
 They stole this information
 He stole her bug
 They stole his idea
@@ -6598,7 +6598,7 @@ break down
 His car often broke down
 
 keep kept kept
-I keptjis secret
+I kept his secret
 I kept my promise
 He kept his word
 
@@ -6627,3 +6627,63 @@ We won the game
 blow blew blown
 The wind blew suddenly
 The wind blew so strongly
+
+[`40 exercise`](https://www.youtube.com/watch?v=0b2peUZTb1Q&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=86)
+
+They often broke the rules
+He held that box
+They stole this information
+He kept his money in the save place
+His car broke down
+Her car broke down quite often
+His behavior meant the following
+My car broke down very rarely
+
+Their team won unexpectedly
+They let him stay there until midnight
+His parents let him go out
+He broke her pen
+He held her bag
+We won the game
+He stole such expensive things
+I meant the following thing
+They stole his idea 
+I won 500 (five hundred) dollars
+
+I left Russia
+His parents let him play outside
+He stole her bag
+We left Russia last year
+I woke up as usual
+He held the door
+We left America
+I left my wallet at home
+The wind blew suddenly
+I left money at home
+
+He held her hand
+I won in that competition
+I left it in your room
+It meant nothing (It didn't mean anything)
+He woke up late
+Our team won suddenly
+He broke him promise
+They stole his clothes
+I kept his secret
+I left my keys
+
+My car broke down very rarely
+Her works meant a strange thing
+She kept her money in a bank
+I woke up at 6 o'clock in the morning
+I woke up very early
+The car often broke down
+We won in that tournament
+He broke the window
+
+I left home 20 minutes ago
+The wind blew so strongly
+I left the office late
+I left home at 8 o'clock in the morning
+
+[`41 lesson`](https://www.youtube.com/watch?v=_20jJNstLvY&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=87)
