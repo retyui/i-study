@@ -6687,3 +6687,66 @@ I left the office late
 I left home at 8 o'clock in the morning
 
 [`41 lesson`](https://www.youtube.com/watch?v=_20jJNstLvY&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=87)
+
+51. grow - grew - grown
+He grew vegetables in his own garden
+grow up
+I grew up in Russia
+He grew up in America
+
+52. lie - lay - lain
+lie down
+I lay down
+The pen lay on the desk
+lie - lied - lied
+She lied to me
+
+53. fall - fell - fallen
+The price fell sharply
+fall down
+He fell down
+She fell down and broke her arm
+
+54. spend - spent - spent
+He spent all his money
+He spent more than he wanted
+I spent tow hours on it
+She spent 200 dollars
+
+55. drive - drove - driven
+I drove a car yesterday
+drive home / drive to work
+I drove to work
+I drove home
+
+56. draw - drew - drawn
+He drew a picture
+She drew such a beautiful picture
+She drew his face
+
+57. wear - wore - worn
+I wore school uniform
+I wore glasses
+He wore casual clothes
+
+58. hurt - hurt - hurt
+He hurt his leg
+She fell down and hurt her leg
+She hurt her arm
+He hurt her feelings
+
+59. cut - cut - cut
+He cut the meat
+She cut the fish
+He cut himself
+She cut herself
+He cut the meat into small pieces
+
+60. forget - forgot - forgotten
+I forgot his name
+I forgot to do it
+I forgot to call her
+I forgot to close the door
+I forgot to lock the door
+
+[`41 exercises`](https://www.youtube.com/watch?v=-3p1_qAZhHA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=88)
