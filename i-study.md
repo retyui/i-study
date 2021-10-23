@@ -6647,7 +6647,7 @@ He held her bag
 We won the game
 He stole such expensive things
 I meant the following thing
-They stole his idea 
+They stole his idea
 I won 500 (five hundred) dollars
 
 I left Russia
@@ -6750,3 +6750,74 @@ I forgot to close the door
 I forgot to lock the door
 
 [`41 exercises`](https://www.youtube.com/watch?v=-3p1_qAZhHA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=88)
+
+He cut the meat
+She cut herself
+He lay down
+The book lay on the table
+She grew flowers
+He lied to her
+She lied to her boss
+He grew vegetables in his own garden
+
+I grew up in Russia
+I forgot to call her
+She fell down and broke her arm
+He drove to me
+I forgot his name
+It lay near that place
+It lay far from that place
+The bag lay far from there
+
+The price fall suddenly
+I wore school uniform
+I spent two hours on it
+He grew up in America
+She hurt her arm
+The price fell sharply
+He drew such a funny picture
+She drew a picture
+
+My friend drove home
+She spent her last money
+I forgot to do it one more time
+I spent so much time on it
+She spent 200 dollars
+She drove such a beautiful picture
+I drove to school
+He spent all his money
+
+I forgot to lock the door
+The pen lay on the desk
+He hurt his leg
+We drove to the airport
+She wore informal close
+She drew his face
+She wore casual clothes
+I drove a car yesterday
+
+He cur his finger
+She spent too much time on it
+I forgot to do it
+He fell down
+I wore glasses
+He cut himself
+I forgot how to use it
+He fell down and broke his leg
+
+They always spent more money
+He cut the meat into small pieces
+I spent three hours on it
+I forgot the name of this street
+She wore formal clothes
+I drove to work
+He grew up in Canada
+He hurt her feelings
+
+She cut the fish
+It hurt her feelings
+He spent more than he wanted
+(The last example)
+I spent (a lot of / lots of) energy on this project
+
+[`42 lesson`](https://www.youtube.com/watch?v=4Hl4NMcTQn8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=89)
