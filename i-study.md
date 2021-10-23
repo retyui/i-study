@@ -6821,3 +6821,64 @@ He spent more than he wanted
 I spent (a lot of / lots of) energy on this project
 
 [`42 lesson`](https://www.youtube.com/watch?v=4Hl4NMcTQn8&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=89)
+
+61. sing - sang - sung
+She sang a very beautiful song
+She sang very beautifully
+He sang his favorite song
+
+62. teach - taught - taught
+I taught English
+He taught them Russian
+He taught history
+
+63. throw - threw - thrown
+He threw a ball to him
+He threw a ball at him
+throw away
+He threw it away
+
+64. feed - fed - fed
+He fed his dog
+She fed her cat
+She fed her baby
+They fed the children
+
+65. lend - lent - lent
+I lent him some money
+I lent him 300 (three hundred) dollars
+They lent him a big sum of money
+
+66. ring - rang - rung
+The bell rang
+My alarm clock rang
+I called him
+I rang him
+
+67. hide - hid - hidden
+He hid from them
+She hid behind the tree
+He hid behind that building
+
+68. hit - hit - hit
+He hit the ball
+He hit the door
+
+69. beat - beat - beaten
+beat someone badly
+They beat him very badly (strongly)
+They beat that team
+
+70. ride - rode - ridden
+I rode a bike
+I rode a horse
+I rode a camel
+
+I car ride a bike
+go cycling; I went cycling
+(It sounds very natural)
+
+run - ran - run
+go jogging; I went jogging
+
+[`42 exerses`](https://www.youtube.com/watch?v=kRpP9APKbtU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=90)
