@@ -115,7 +115,6 @@ note
 
 [`Учимся читать до автоматизма урок 3 английский язык с нуля уроки английского языка`](https://www.youtube.com/watch?v=S2tIrg7-OWc)
 
-<!-- yaspeller ignore:start -->
 <table>
 	<thead>
 		<tr>
@@ -179,7 +178,6 @@ note
 		</tr>
 	</tbody>
 </table>
-<!-- yaspeller ignore:end -->
 
 | N   | Слово | Транскрипция |
 | --- | ----- | ------------ |

@@ -87,11 +87,6 @@ chalk@^4.1.2:
     ansi-styles "^4.1.0"
     supports-color "^7.1.0"
 
-ci-job-number@^1.0.0:
-  version "1.2.2"
-  resolved "https://registry.yarnpkg.com/ci-job-number/-/ci-job-number-1.2.2.tgz#f4e5918fcaeeda95b604f214be7d7d4a961fe0c0"
-  integrity sha512-CLOGsVDrVamzv8sXJGaILUVI6dsuAkouJP/n6t+OxLPeeA4DDby7zn9SB6EUpa1H7oIKoE+rMmkW80zYsFfUjA==
-
 color-convert@^1.9.0:
   version "1.9.3"
   resolved "https://registry.yarnpkg.com/color-convert/-/color-convert-1.9.3.tgz#bb71850690e1f136567de629d2d5471deda4c1e8"
@@ -393,18 +388,10 @@ yandex-speller@^4.1.0:
   resolved "https://registry.yarnpkg.com/yandex-speller/-/yandex-speller-4.1.0.tgz#ccdd565705512934ccdcae2df332491a4834761c"
   integrity sha512-z13o3GCMxm5g/MU28JCIdu9SXsAoShroqAheFciS3K0wa2JRkA1y5qASZuavJuaCl0KG5RhTjo8gdkbyp6QC+w==
 
-yaspeller-ci@^1.0.2:
-  version "1.0.2"
-  resolved "https://registry.yarnpkg.com/yaspeller-ci/-/yaspeller-ci-1.0.2.tgz#191fd0b3b1ae3602cac9407948f65fa1e997dd0d"
-  integrity sha512-N0q8riZB4b3ECddohE7ho1O5h8GD7LwWW860hVVTs9qqVvdxRqlJPf+q0WnYEqUDlWK3y7uktTrAske3KrJAEg==
-  dependencies:
-    ci-job-number "^1.0.0"
-    yaspeller ">=6.0.2"
-
-yaspeller@>=6.0.2:
-  version "7.2.0"
-  resolved "https://registry.yarnpkg.com/yaspeller/-/yaspeller-7.2.0.tgz#0bd9d5423d8319466b6b31ca721cf1d5d436f755"
-  integrity sha512-remrayG57ND8qsV2mRbULZLl388iZ+XgslGZoh9U5wkaoEVGm30VpzOJAsSdPXK8ecQCF4jLM7MiQ+JfGrx06w==
+yaspeller@^7.2.1:
+  version "7.2.1"
+  resolved "https://registry.yarnpkg.com/yaspeller/-/yaspeller-7.2.1.tgz#59fcc0268247b449d059a1e90cb842d247ec076b"
+  integrity sha512-Iq1WUHckdH7SCXGkJdXsUhO/3Wmp7tPgBhAQQJjWlyQZKmwv+zigPKZFWAheVDefUSBvldTKINRgTv9dG/JL/g==
   dependencies:
     async "^3.2.1"
     chalk "^4.1.2"
