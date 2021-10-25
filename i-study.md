@@ -6882,3 +6882,63 @@ run - ran - run
 go jogging; I went jogging
 
 [`42 exerses`](https://www.youtube.com/watch?v=kRpP9APKbtU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=90)
+
+The bell rang
+He sang his favorite song
+He taught this subject last year
+She taught several subject there
+He taught history
+She fed the children
+She hid from them
+His alarm clock rang suddenly
+
+He hid from them
+She fed her cat
+She sang three beautiful songs
+She taught us English very well
+She fed her baby
+They beat that team
+He threw a ball to him
+I lent him some money
+
+He taught English when he was 20 (years old)
+She threw it away
+She sang very beautifully
+I went cycling
+I rode a bike
+He threw it away
+He sang professionally
+He lent him 500 (five hundred) euros
+I rode a horse
+He hid behind that building
+
+He hit a the ball
+He fed his dog
+They hid from us
+They fed the children
+He hit him first
+They sang their favorite song
+He lent her 200 pounds
+We went jogging three times a week
+
+They lent him a very big sum of money
+He threw a small ball to him
+They beat him very badly
+He taught them Russian
+He fed his pet
+I taught English
+He threw them away
+
+She taught English there two years ago
+He hit the door
+I taught him a lesson
+She hid behind the tree
+I rode a camel
+My alarm clock rang
+
+I lent him three hundred dollars
+She sang a very beautiful song
+I went jogging
+I ran very fast
+
+[`43 repeat lesson`](https://www.youtube.com/watch?v=U3pKoVKvDWw&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=91)
