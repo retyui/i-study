@@ -7051,3 +7051,120 @@ She wore stylish / fashionable clothes
 I read a lot
 
 [`44 lesson`](https://www.youtube.com/watch?v=7bsKY7rglgA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=92)
+
+36. buy - bought - bought
+He bought a house
+
+37. ring - rang - rang
+The bell rang
+
+38. lend - lent - lent
+I lent him 2000 (two thousand) dollars
+
+39. make - made - made
+He made a big mistake
+
+40. have - had - had
+She had a boyfriend
+
+41. begin - began - begun
+The meeting began on time
+
+42. steal - stole - stolen
+They stole his wallet
+
+43.do - did - done
+He did his homework
+
+44. cost - cost - cost
+It cost little
+
+45. lose - lost - lost
+He lose this money
+
+46. blow - blew - blown
+The wind blew suddenly
+
+47. spend - spent - spent
+She spent more / less 
+
+48. cut - cut - cut
+He cut his finger
+
+49. understand - understood - understood
+I understood you perfectly
+
+50. hit - hit - hit
+He hit the ball
+
+51. see - saw - seen
+I saw progress
+
+52. send - sent - sent
+She sent me a letter
+
+53. show - showed - shown
+He showed me his excellent results
+
+54. pay - paid - paid
+I paid for her
+
+55. throw - threw - thrown
+I threw it away
+
+56. draw - drew - drown
+She drew a picture
+
+57. tell - told - told
+He told me what to do
+
+58. choose - chose - chosen
+I chose your course
+
+59. hide - hid - hidden
+He hid this sum of money
+
+60. say - said - said
+He said it very loudly
+
+61. take - took - taken
+I took her with me
+
+62. eat - ate - eaten
+I ate little (я поел мало)
+I ate a little / bit (я поел немного)
+
+63. speak - spoke - spoken
+I spoke English
+
+say - He said it, I want to say (сказать)
+tell - He told me to do it (кому-то)
+speak - Let's speak English! (на каком-то языке \ как громко)
+talk - Let's talk about it! (обсудить)
+(discuss)
+
+64. win - won - won
+I won at last
+
+65. give - gave - given
+He gave me this information
+
+66. put - put - put
+I put it on the table
+
+67. forget - forgot - forgotten
+I forgot how to do it
+
+68. teach - taught - taught
+She taught English there
+
+69. sell - sold - sold
+She sold her old car
+
+70. sleep - slept - slept
+He slept in his new room
+
+71. run - ran - run
+He ran to their house
+
+[`43 exercises`](https://www.youtube.com/watch?v=EesVtBzXIXU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=93)
