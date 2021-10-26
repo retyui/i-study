@@ -6942,3 +6942,112 @@ I went jogging
 I ran very fast
 
 [`43 repeat lesson`](https://www.youtube.com/watch?v=U3pKoVKvDWw&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=91)
+
+1. break - broke - broken
+His car broke down
+
+2.  lie - lay - lain
+The pen lay on the desk
+BUT: lie - lied - lied
+She lied to her parents
+
+3. write - wrote - written
+She wrote a letter
+
+4. leave - left - left
+I left Russia
+
+5. come - came - come
+He came to me
+
+6. think - thought - thought
+I thought about this problem
+
+7. hear - heard - heard
+I heard it from him
+
+8. know - knew - known
+I knew her secret
+
+9. keep - kept - kept
+He kept his word
+
+10. find - found - found
+He found his lost keys
+
+11. mean - meant - meant
+I meant the following thing
+
+12. be - was/were - been
+It was such a good idea
+
+13. swim - swam - swum
+We swan in the see
+
+14. ride - rode - ridden
+I rode a horse
+
+15. hold - help - help
+I held the door
+
+16. get - got - got
+I got up very early
+
+17. hurt - hurt - hurt
+He fell down and hurt his arm
+
+18. feed - fed - fed
+She fed her cat
+
+19. stand - stood - stood
+He stood up
+
+20. fly - flew - flown
+She flew to Canada
+
+21. drive - drove - driven
+I drove to work
+
+22. meet - met - met
+I met this work for the first time
+
+23. set - sat - sat
+He sat down 
+
+24. sing sang sung
+She sang so beautifully
+
+25. drink - drank - drunk
+I drank a glass of juice
+
+26. let - let - let
+They let her stay there until midnight
+
+27. grow - grew - grown
+I grew up in America
+
+28. go - went - gone
+We went there together
+
+29. beat - beat - beaten
+They beat him very badly
+
+30. become - became - become
+He became famous
+
+31. wake - woke - woken
+I woke up very early
+
+32. fall - fell - fallen
+The price fell unexpectedly
+
+33. feel - felt - felt
+I felt better
+
+34. wear - wore - worn
+She wore stylish / fashionable clothes
+
+35. read - read - read
+I read a lot
+
+[`44 lesson`](https://www.youtube.com/watch?v=7bsKY7rglgA&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=92)
