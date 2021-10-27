@@ -7168,3 +7168,118 @@ He slept in his new room
 He ran to their house
 
 [`43 exercises`](https://www.youtube.com/watch?v=EesVtBzXIXU&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=93)
+
+I sat on a soft chair
+They ran very fast
+They were together
+I felt better
+He sold his flat
+I wrote a very long message
+I was shocked
+I ate some fish
+
+I paid for her
+He gave me this information
+He showed me his excellent results
+He came to the party
+I wore school uniform
+It meant nothing / It didn't mean anything
+He cut himself
+He hit the ball
+
+He send her flowers
+It lay near that place
+He lent her 200 (two hundred) pounds
+I spent so much time on it
+They did it again and again
+He was such an experienced worker
+As you understand we spoke English
+I knew what to say
+
+They hid from us
+He stole her bag
+He threw a ball to him
+She told me how to do it
+I spoke English a lot
+He threw a small ball to him
+She taught English there two years ago
+We met in a local restaurant
+
+He came to us
+They sang their favorite song
+We had a great time
+We were surprised by the news
+He lost his wallet
+He fell down and broke his leg
+I wrote a message
+He spent all his money
+
+I left my wallet at home
+I felt we had a big problem
+I understood him immediately
+He got up too late
+I read that text
+It cost too much
+I chose this channel
+She hid behind the tree
+
+I chose your method
+His car broke down
+We chose another room
+He drank a glass of wine
+I rode a bike (I went cycling)
+I felt (that) I knew everything
+She sold her car
+I took her with me
+I drove a car yesterday
+
+I put it near my computer
+They always spent more money
+We flew to another city
+I felt bad
+I was the best student
+She grew vegetables in her own garden
+I found a good job
+The wind blew suddenly
+
+I spent two hours on it
+I did my homework
+He swam in the lake
+She grew flowers
+He sang professionally
+I drank a cup of coffee
+He said it one more time
+It cost a lot
+
+The price fell sharply
+My friend drove home
+I went to the park
+I got up very early
+I went jogging
+His parents let him play outside
+I felt good
+He did a strange thing
+
+We swam in the river
+I often heard it when I was there
+She was a leader
+I felt much better
+She kept her money in a bank
+I wrote a letter
+I knew how to say it
+She told her secret
+
+I saw progress
+I left home 20 minutes ago
+I forgot to call her
+He broke her pen
+She told me to call him
+We new it very well
+He bought a beautiful dress for her
+
+He hurt her feelings
+I paid for this service
+We got all the necessary information
+He paid for us
+
+[`44 exercises`](https://www.youtube.com/watch?v=nWa5wcqR6C4&list=PL3KDFIV9zTkzKyHAKHhZSIWfRZwY6UBNX&index=94)
